@@ -1,7 +1,8 @@
-#New Sydney Events as at 25 Jun 2021
+# New Sydney Events as at 25 Jun 2021
 New Sydney Events as at 25 Jun 2021 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
 
 https://upnext.com.au/sydney
+
 
 **Baroque Now! - City Recital Hall 2021** - https://upnext.com.au/event/baroque-now-city-recital-hall-2021
 
@@ -80,7 +81,10 @@ https://upnext.com.au/sydney
 **Kate Clarkson: Emerging 2021** - https://upnext.com.au/event/kate-clarkson-emerging-2021
 
 
+
 See more events at https://upnext.com.au/sydney
+
+
 Also check out:
 
 * UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
