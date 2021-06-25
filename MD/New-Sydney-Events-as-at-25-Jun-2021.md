@@ -1,4 +1,4 @@
-#New Sydney Events as at 25 Jun 2021
+# New Sydney Events as at 25 Jun 2021
 New Sydney Events as at 25 Jun 2021 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
 
 https://upnext.com.au/sydney
