@@ -1,0 +1,82 @@
+# New Sydney Events as at 19 Aug 2021
+New Sydney Events as at 19 Aug 2021 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**ADAnow 2021** - https://upnext.com.au/event/adanow-2021
+
+**Madame Tussauds Sydney's '15 Second Movie Challenge' 2021** - https://upnext.com.au/event/madame-tussauds-sydneys-15-second-movie-challenge-2021
+
+**Solastalgia 2021** - https://upnext.com.au/event/solastalgia-2021
+
+**A Migrant's Son 2021** - https://upnext.com.au/event/a-migrants-son-2021
+
+**Japanaroo opening night 2021** - https://upnext.com.au/event/japanaroo-opening-night-2021
+
+**Live magic lessons and show for family 2021** - https://upnext.com.au/event/live-magic-lessons-and-show-for-family-2021
+
+**Trivia with a twist 2021** - https://upnext.com.au/event/trivia-with-a-twist-2021
+
+**Children's Book Week at City of Sydney Library 2021** - https://upnext.com.au/event/childrens-book-week-at-city-of-sydney-library-2021
+
+**Grow local- think global: Growing mushrooms and microgreens 2021** - https://upnext.com.au/event/grow-local-think-global-growing-mushrooms-and-microgreens-2021
+
+**In the Frame: Archibald Prize 2021** - https://upnext.com.au/event/in-the-frame-archibald-prize-2021
+
+**Zumba Gold 2021** - https://upnext.com.au/event/zumba-gold-2021
+
+**Midweek Virtual Matched Speed Dating Sydney- Ages 35-47 2021** - https://upnext.com.au/event/midweek-virtual-matched-speed-dating-sydney-ages-35-47-2021
+
+**The law and climate: the view of the courts 2021** - https://upnext.com.au/event/the-law-and-climate-the-view-of-the-courts-2021
+
+**What is happiness 2021** - https://upnext.com.au/event/what-is-happiness-2021
+
+**Wear It Purple: Start the conversation virtual event 2021** - https://upnext.com.au/event/wear-it-purple-start-the-conversation-virtual-event-2021
+
+**#BatteryLow: The science of cooperation 2021** - https://upnext.com.au/event/batterylow-the-science-of-cooperation-2021
+
+**Chair yoga teacher training 2021** - https://upnext.com.au/event/chair-yoga-teacher-training-2021
+
+**Gay men virtual matched speed dating- ages 25-45 2021** - https://upnext.com.au/event/gay-men-virtual-matched-speed-dating-ages-25-45-2021
+
+**Monday night virtual matched speed dating- ages 30-42 2021** - https://upnext.com.au/event/monday-night-virtual-matched-speed-dating-ages-30-42-2021
+
+**Combustible cladding support for strata communities 2021** - https://upnext.com.au/event/combustible-cladding-support-for-strata-communities-2021
+
+**Sugar free September 2021** - https://upnext.com.au/event/sugar-free-september-2021
+
+**The Countess of Kirribilli 2021** - https://upnext.com.au/event/the-countess-of-kirribilli-2021
+
+**Frogs in the city webinar 2021** - https://upnext.com.au/event/frogs-in-the-city-webinar-2021
+
+**Unity National School teaching week 2021** - https://upnext.com.au/event/unity-national-school-teaching-week-2021
+
+**Powering the Pacific: Impacts of a renewable transition 2021** - https://upnext.com.au/event/powering-the-pacific-impacts-of-a-renewable-transition-2021
+
+**Guided meditation with binaural music: Live from Kakadu 2021** - https://upnext.com.au/event/guided-meditation-with-binaural-music-live-from-kakadu-2021
+
+**Covid- green energy- social and natural environments 2021** - https://upnext.com.au/event/covid-green-energy-social-and-natural-environments-2021
+
+**From bailouts to basic income? 2021** - https://upnext.com.au/event/from-bailouts-to-basic-income-2021
+
+**Storytime with Tania McCartney 2021** - https://upnext.com.au/event/storytime-with-tania-mccartney-2021
+
+**Australian Life: Meet the photographers - Unity 2021** - https://upnext.com.au/event/australian-life-meet-the-photographers-unity-2021
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
