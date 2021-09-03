@@ -1,0 +1,102 @@
+# New Sydney Events as at 03 Sep 2021
+New Sydney Events as at 03 Sep 2021 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Floral wreath making: Learn on demand 2021** - https://upnext.com.au/event/floral-wreath-making-learn-on-demand-2021
+
+**Art Est Art Nights 2021** - https://upnext.com.au/event/art-est-art-nights-2021
+
+**Artist in Focus: Janet Tavener 2021** - https://upnext.com.au/event/artist-in-focus-janet-tavener-2021
+
+**Don Reid's Codgers 2021** - https://upnext.com.au/event/don-reids-codgers-2021
+
+**Friday night virtual matched speed dating Sydney- ages 35-49 2021** - https://upnext.com.au/event/friday-night-virtual-matched-speed-dating-sydney-ages-35-49-2021
+
+**Miriam Innes: Grandiose Paris 2021** - https://upnext.com.au/event/miriam-innes-grandiose-paris-2021
+
+**Starlight Tour de Kids 2021** - https://upnext.com.au/event/starlight-tour-de-kids-2021
+
+**""Game Over Man- Game Over!" Popculture Trivia Online Edition 2021"** - https://upnext.com.au/event/game-over-man-game-over-popculture-trivia-online-edition-2021
+
+**From the Ground Up: Interview with FILEF 2021** - https://upnext.com.au/event/from-the-ground-up-interview-with-filef-2021
+
+**Fun free Zoom dance classes for kids 2021** - https://upnext.com.au/event/fun-free-zoom-dance-classes-for-kids-2021
+
+**Homemade pantry staples: online workshop 2021** - https://upnext.com.au/event/homemade-pantry-staples-online-workshop-2021
+
+**Live Drawing with Miriam Innes 2021** - https://upnext.com.au/event/live-drawing-with-miriam-innes-2021
+
+**Moratorium: When Sydney filled the streets to stop a war 2021** - https://upnext.com.au/event/moratorium-when-sydney-filled-the-streets-to-stop-a-war-2021
+
+**Steelworks: The backbone 2021** - https://upnext.com.au/event/steelworks-the-backbone-2021
+
+**Antidote 2021** - https://upnext.com.au/event/antidote-2021
+
+**Anita Heiss: Bila Yarrudhanggalangdhuray 2021** - https://upnext.com.au/event/anita-heiss-bila-yarrudhanggalangdhuray-2021
+
+**Stories of the city 2021** - https://upnext.com.au/event/stories-of-the-city-2021
+
+**Afghanistan: How can we help? 2021** - https://upnext.com.au/event/afghanistan-how-can-we-help-2021
+
+**Brad Manera presents In That Rich Earth 2021** - https://upnext.com.au/event/brad-manera-presents-in-that-rich-earth-2021
+
+**From the Ground Up: Forefront of Gay and Lesbian activism 2021** - https://upnext.com.au/event/from-the-ground-up-forefront-of-gay-and-lesbian-activism-2021
+
+**Sydney Observatory: An Environmental History- 1847 - 1900 2021** - https://upnext.com.au/event/sydney-observatory-an-environmental-history-1847-1900-2021
+
+**Talking History: Treasures from our collection 2021** - https://upnext.com.au/event/talking-history-treasures-from-our-collection-2021
+
+**BAD Online: Why Did Daniel Have To Die? 2021** - https://upnext.com.au/event/bad-online-why-did-daniel-have-to-die-2021
+
+**BAD September International 2021** - https://upnext.com.au/event/bad-september-international-2021
+
+**Midweek virtual matched speed dating- ages 28-40 2021** - https://upnext.com.au/event/midweek-virtual-matched-speed-dating-ages-28-40-2021
+
+**The Artist Speaks: online talk series 2021** - https://upnext.com.au/event/the-artist-speaks-online-talk-series-2021
+
+**Women of Steel- a film by Robynne Murphy 2021** - https://upnext.com.au/event/women-of-steel-a-film-by-robynne-murphy-2021
+
+**Helping children-young people cope with trauma in pandemic 2021** - https://upnext.com.au/event/helping-children-young-people-cope-with-trauma-in-pandemic-2021
+
+**Free webinar on circular economy for suppliers and buyers 2021** - https://upnext.com.au/event/free-webinar-on-circular-economy-for-suppliers-and-buyers-2021
+
+**Free yourself from yourself and be happy 2021** - https://upnext.com.au/event/free-yourself-from-yourself-and-be-happy-2021
+
+**Ground Truths 2021** - https://upnext.com.au/event/ground-truths-2021
+
+**In conversation w- Sandy Jeffs & Margaret Leggatt on madness 2021** - https://upnext.com.au/event/in-conversation-w-sandy-jeffs-and-margaret-leggatt-on-madness-2021
+
+**Magic for Dads 2021** - https://upnext.com.au/event/magic-for-dads-2021
+
+**Modern Slavery 2021** - https://upnext.com.au/event/modern-slavery-2021
+
+**RU OK Day Information Session in Mandarin 你好吗，普通话心理健康讲座 2021** - https://upnext.com.au/event/ru-ok-day-information-session-in-mandarin-2021
+
+**RUOK? Day Trivia 2021** - https://upnext.com.au/event/ruok-day-trivia-2021
+
+**The other shore: History of North Sydney's built environment 2021** - https://upnext.com.au/event/the-other-shore-history-of-north-sydneys-built-environment-2021
+
+**John Turner memorial lecture with A-Professor Catherine Bond 2021** - https://upnext.com.au/event/john-turner-memorial-lecture-with-a-professor-catherine-bond-2021
+
+**Special Collections 'From the Ground up' 2021** - https://upnext.com.au/event/special-collections-from-the-ground-up-2021
+
+**Virtual comedy night 2021** - https://upnext.com.au/event/virtual-comedy-night-2021
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
