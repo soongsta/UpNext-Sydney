@@ -1,0 +1,74 @@
+# New Sydney Events as at 10 Sep 2021
+New Sydney Events as at 10 Sep 2021 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**2021 Sydney Awards Ceremony** - https://upnext.com.au/event/2021-sydney-awards-ceremony
+
+**In Conversation: Lou Bennett 2021** - https://upnext.com.au/event/in-conversation-lou-bennett-2021
+
+**Raising Peace Festival 2021** - https://upnext.com.au/event/raising-peace-festival-2021
+
+**Spot On(line) Children's Festival 2021** - https://upnext.com.au/event/spot-online-childrens-festival-2021
+
+**Batman Day Trivia 2021** - https://upnext.com.au/event/batman-day-trivia-2021
+
+**Homemade Pantry Staples: Part 2 2021** - https://upnext.com.au/event/homemade-pantry-staples-part-2-2021
+
+**Psychic Fair 2021** - https://upnext.com.au/event/psychic-fair-2021
+
+**Blackmores Virtual Sydney Running Festival 2021** - https://upnext.com.au/event/blackmores-virtual-sydney-running-festival-2021
+
+**Portrait Drawing for Teens (13-16 years old) 2021** - https://upnext.com.au/event/portrait-drawing-for-teens-13-16-years-old-2021
+
+**Spring art camp: comic book mania (9-12 years old) 2021** - https://upnext.com.au/event/spring-art-camp-comic-book-mania-9-12-years-old-2021
+
+**Reflections on Sydney: Farewell Liz Ann Macgregor 2021** - https://upnext.com.au/event/reflections-on-sydney-farewell-liz-ann-macgregor-2021
+
+**Creative journaling workshop with Mel Young 2021** - https://upnext.com.au/event/creative-journaling-workshop-with-mel-young-2021
+
+**Experimental watercolour painting (9-12 year olds) 2021** - https://upnext.com.au/event/experimental-watercolour-painting-9-12-year-olds-2021
+
+**Freedom to Choose 2021** - https://upnext.com.au/event/freedom-to-choose-2021
+
+**Learn to beatbox: introductory online workshop 2021** - https://upnext.com.au/event/learn-to-beatbox-introductory-online-workshop-2021
+
+**Wellbeing and Empowerment: realising your potential 2021** - https://upnext.com.au/event/wellbeing-and-empowerment-realising-your-potential-2021
+
+**Mini-Makers (6-8 years old) - Collage: Chance Creations 2021** - https://upnext.com.au/event/mini-makers-6-8-years-old-collage-chance-creations-2021
+
+**Watercolour painting for teens 2021** - https://upnext.com.au/event/watercolour-painting-for-teens-2021
+
+**Youth drama workshop with Zoe Tomaras 2021** - https://upnext.com.au/event/youth-drama-workshop-with-zoe-tomaras-2021
+
+**An afternoon of Roald Dahl 2021** - https://upnext.com.au/event/an-afternoon-of-roald-dahl-2021
+
+**Sketchbook exploration for teens: Drawing fundamentals 2021** - https://upnext.com.au/event/sketchbook-exploration-for-teens-drawing-fundamentals-2021
+
+**Sketchbook Exploration: All things Drawing (9-12 years old) 2021** - https://upnext.com.au/event/sketchbook-exploration-all-things-drawing-9-12-years-old-2021
+
+**Rum: A Distilled History of Colonial Australia 2021** - https://upnext.com.au/event/rum-a-distilled-history-of-colonial-australia-2021
+
+**Virtual Talk: Joseph Conrad's Eastern Voyages - Ian Burnet 2021** - https://upnext.com.au/event/virtual-talk-joseph-conrads-eastern-voyages-ian-burnet-2021
+
+**Backyard chickens webinar 2021** - https://upnext.com.au/event/backyard-chickens-webinar-2021
+
+**Nature play in the city 2021** - https://upnext.com.au/event/nature-play-in-the-city-2021
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
