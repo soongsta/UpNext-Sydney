@@ -1,0 +1,46 @@
+# New Sydney Events as at 28 Sep 2021
+New Sydney Events as at 28 Sep 2021 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Photo Frame Floral Decor - DIY pack & video 2021** - https://upnext.com.au/event/photo-frame-floral-decor-diy-pack-and-video-2021
+
+**Bridge to volunteering: introduction to volunteering webinar 2021** - https://upnext.com.au/event/bridge-to-volunteering-introduction-to-volunteering-webinar-2021
+
+**A sneak peek into our woven worlds 2021** - https://upnext.com.au/event/a-sneak-peek-into-our-woven-worlds-2021
+
+**Friday Night Virtual Matched Speed Dating Sydney- Ages 37-49 2021** - https://upnext.com.au/event/friday-night-virtual-matched-speed-dating-sydney-ages-37-49-2021
+
+**Get Crafty Workshops 2021** - https://upnext.com.au/event/get-crafty-workshops-2021
+
+**Storytime Online with Shelly Unwin 2021** - https://upnext.com.au/event/storytime-online-with-shelly-unwin-2021
+
+**Midweek Virtual Matched Speed Dating Sydney- Ages 29-39 2021** - https://upnext.com.au/event/midweek-virtual-matched-speed-dating-sydney-ages-29-39-2021
+
+**A Night of Horror International Film Festival 2021** - https://upnext.com.au/event/a-night-of-horror-international-film-festival-2021
+
+**Adobe MAX: The Creativity Conference 2021** - https://upnext.com.au/event/adobe-max-the-creativity-conference-2021
+
+**Bedlam at Botany Bay 2021** - https://upnext.com.au/event/bedlam-at-botany-bay-2021
+
+**COVID-normal: preparing for a new world 2021** - https://upnext.com.au/event/covid-normal-preparing-for-a-new-world-2021
+
+**Lunchtime Lecture: Polska Jerozolima: To a new life 2021** - https://upnext.com.au/event/lunchtime-lecture-polska-jerozolima-to-a-new-life-2021
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
