@@ -1,0 +1,48 @@
+# New Sydney Events as at 17 Oct 2021
+New Sydney Events as at 17 Oct 2021 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Planting a tree for you (and your pup) this October 2021** - https://upnext.com.au/event/planting-a-tree-for-you-and-your-pup-this-october-2021
+
+**Carer Gateway information session for carers 2021** - https://upnext.com.au/event/carer-gateway-information-session-for-carers-2021
+
+**Term 4 Art Classes - Discover Art 2021** - https://upnext.com.au/event/term-4-art-classes-discover-art-2021
+
+**In conversation: Doug Aitken and Rachel Kent 2021** - https://upnext.com.au/event/in-conversation-doug-aitken-and-rachel-kent-2021
+
+**Still life painting short course 2021** - https://upnext.com.au/event/still-life-painting-short-course-2021
+
+**Introduction to Expressive Drawing 2021** - https://upnext.com.au/event/introduction-to-expressive-drawing-2021
+
+**Art Therapy for Pregnancy 2021** - https://upnext.com.au/event/art-therapy-for-pregnancy-2021
+
+**Brilliant Boy: Doc Evatt and the Great Australian Experiment 2021** - https://upnext.com.au/event/brilliant-boy-doc-evatt-and-the-great-australian-experiment-2021
+
+**Lunchtime Lecture: Clothing and Narratives during the Shoah 2021** - https://upnext.com.au/event/lunchtime-lecture-clothing-and-narratives-during-the-shoah-2021
+
+**New Approaches to Painting 2021** - https://upnext.com.au/event/new-approaches-to-painting-2021
+
+**Painting and Drawing the Life Model 2021** - https://upnext.com.au/event/painting-and-drawing-the-life-model-2021
+
+**Thank You Thursday Cruises 2021** - https://upnext.com.au/event/thank-you-thursday-cruises-2021
+
+**Love Addict 2021** - https://upnext.com.au/event/love-addict-2021
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
