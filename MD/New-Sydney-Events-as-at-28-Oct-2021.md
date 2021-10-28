@@ -1,0 +1,32 @@
+# New Sydney Events as at 28 Oct 2021
+New Sydney Events as at 28 Oct 2021 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**2021 Sydney Peace Prize Gala Dinner 2022** - https://upnext.com.au/event/2021-sydney-peace-prize-gala-dinner-2022
+
+**Run2Cure Neuroblastoma 2022** - https://upnext.com.au/event/run2cure-neuroblastoma-2022
+
+**Art & craft group 2021** - https://upnext.com.au/event/art-and-craft-group-2021
+
+**'John Olsen: Goya's Dog' 2021** - https://upnext.com.au/event/john-olsen-goyas-dog-2021
+
+**National Art School Open Day 2021** - https://upnext.com.au/event/national-art-school-open-day-2021
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
