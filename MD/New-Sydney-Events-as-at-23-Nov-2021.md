@@ -1,0 +1,72 @@
+# New Sydney Events as at 23 Nov 2021
+New Sydney Events as at 23 Nov 2021 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Apothecary Now! 2021** - https://upnext.com.au/event/apothecary-now-2021
+
+**Save the date: Westfield week of offers 2021** - https://upnext.com.au/event/save-the-date-westfield-week-of-offers-2021
+
+**Sewing Class for Beginners 2021** - https://upnext.com.au/event/sewing-class-for-beginners-2021
+
+**Dr. Martens customisation station @ World Square 2021** - https://upnext.com.au/event/dr-martens-customisation-station-world-square-2021
+
+**Basket - Bouquet Flower Arranging Workshop 2021** - https://upnext.com.au/event/basket-bouquet-flower-arranging-workshop-2021
+
+**Revisiting Shoei Yoh 2021** - https://upnext.com.au/event/revisiting-shoei-yoh-2021
+
+**Smartphone Photography Class 2021** - https://upnext.com.au/event/smartphone-photography-class-2021
+
+**Japan Expo 2021** - https://upnext.com.au/event/japan-expo-2021
+
+**Haymarket Chamber of Commerce Chinatown celebration 2021** - https://upnext.com.au/event/haymarket-chamber-of-commerce-chinatown-celebration-2021
+
+**Celebrate Christmas Lunch at Sydney Opera House 2021** - https://upnext.com.au/event/celebrate-christmas-lunch-at-sydney-opera-house-2021
+
+**New Years Eve at Opera Bar! 2021** - https://upnext.com.au/event/new-years-eve-at-opera-bar-2021
+
+**Terrarium Workshop for Beginners 2022** - https://upnext.com.au/event/terrarium-workshop-for-beginners-2022
+
+**Dessert Making Class: Five Delicious Desserts 2021** - https://upnext.com.au/event/dessert-making-class-five-delicious-desserts-2021
+
+**Seafood Dishes Cooking Class: Sassy Seafood 2022** - https://upnext.com.au/event/seafood-dishes-cooking-class-sassy-seafood-2022
+
+**Drawing Course for Beginners 2021** - https://upnext.com.au/event/drawing-course-for-beginners-2021
+
+**Clay Cartel 2021** - https://upnext.com.au/event/clay-cartel-2021
+
+**Beaded Jewellery Workshop for Beginners 2021** - https://upnext.com.au/event/beaded-jewellery-workshop-for-beginners-2021
+
+**Adventures in Yellow - paintings by David Kurzydlo 2021** - https://upnext.com.au/event/adventures-in-yellow-paintings-by-david-kurzydlo-2021
+
+**Babette's Feast 2022** - https://upnext.com.au/event/babettes-feast-2022
+
+**Clay Sculpture Course 2022** - https://upnext.com.au/event/clay-sculpture-course-2022
+
+**Worm farm basics talk 2022** - https://upnext.com.au/event/worm-farm-basics-talk-2022
+
+**Where The FETŪ Once Lived 2022** - https://upnext.com.au/event/where-the-fetu-once-lived-2022
+
+**Obedient Being 2022** - https://upnext.com.au/event/obedient-being-2022
+
+**@Abu Salim 2022** - https://upnext.com.au/event/abu-salim-2022
+
+**Japanese Cooking Class (Beginner) 2022** - https://upnext.com.au/event/japanese-cooking-class-beginner-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
