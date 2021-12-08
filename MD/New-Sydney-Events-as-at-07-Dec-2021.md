@@ -1,0 +1,42 @@
+# New Sydney Events as at 07 Dec 2021
+New Sydney Events as at 07 Dec 2021 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Chinatown stories- snacks & secrets walking tour 2021** - https://upnext.com.au/event/chinatown-stories-snacks-and-secrets-walking-tour-2021
+
+**Sydney Harbour YHA: Rooftop NYE party 2021** - https://upnext.com.au/event/sydney-harbour-yha-rooftop-nye-party-2021
+
+**Aboriginal cultures and ecology walk 2022** - https://upnext.com.au/event/aboriginal-cultures-and-ecology-walk-2022
+
+**Soil mates vacation care (ages 5 to 12) 2022** - https://upnext.com.au/event/soil-mates-vacation-care-ages-5-to-12-2022
+
+**Exploring seeds: Vacation care (ages 5 to 12) 2022** - https://upnext.com.au/event/exploring-seeds-vacation-care-ages-5-to-12-2022
+
+**Bugs & Bees: Vacation care (ages 5 to 12) 2022** - https://upnext.com.au/event/bugs-and-bees-vacation-care-ages-5-to-12-2022
+
+**Urban Farm Adventure: Vacation care (ages 5 to 12) 2022** - https://upnext.com.au/event/urban-farm-adventure-vacation-care-ages-5-to-12-2022
+
+**Permaculture & Sustainability: Vacation care (ages 5 - 12) 2022** - https://upnext.com.au/event/permaculture-and-sustainability-vacation-care-ages-5-12-2022
+
+**Chianti wine masterclass 2021** - https://upnext.com.au/event/chianti-wine-masterclass-2021
+
+**Nutri Grain IronMan and IronWomen Series 2022** - https://upnext.com.au/event/nutri-grain-ironman-and-ironwomen-series-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
