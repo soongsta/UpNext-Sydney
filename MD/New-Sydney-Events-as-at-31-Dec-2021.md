@@ -1,0 +1,40 @@
+# New Sydney Events as at 31 Dec 2021
+New Sydney Events as at 31 Dec 2021 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Ribs and Burgers New Year's Eve 2021** - https://upnext.com.au/event/ribs-and-burgers-new-years-eve-2021
+
+**Sydney Tower Eye: New Year's Eve at the Top of Sydney 2021** - https://upnext.com.au/event/sydney-tower-eye-new-years-eve-at-the-top-of-sydney-2021
+
+**Aljamia live at Captain Cook Hotel 2022** - https://upnext.com.au/event/aljamia-live-at-captain-cook-hotel-2022
+
+**Rodric White Band 2022** - https://upnext.com.au/event/rodric-white-band-2022
+
+**Moussa Diakete & Wassado 2022** - https://upnext.com.au/event/moussa-diakete-and-wassado-2022
+
+**Josh Cohen: Radiohead for Solo Piano 2022** - https://upnext.com.au/event/josh-cohen-radiohead-for-solo-piano-2022
+
+**Martinez Akustica 2022** - https://upnext.com.au/event/martinez-akustica-2022
+
+**Sam Simmons - The Knees Show 2022** - https://upnext.com.au/event/sam-simmons-the-knees-show-2022
+
+**Big Bad Wolf 2022** - https://upnext.com.au/event/big-bad-wolf-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
