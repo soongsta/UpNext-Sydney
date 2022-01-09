@@ -1,0 +1,78 @@
+# New Sydney Events as at 09 Jan 2022
+New Sydney Events as at 09 Jan 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Sunday Sessions Preview Screenings 2022** - https://upnext.com.au/event/sunday-sessions-preview-screenings-2022
+
+**Perahu-Perahu 2022** - https://upnext.com.au/event/perahu-perahu-2022
+
+**Street Taco Party! 2022** - https://upnext.com.au/event/street-taco-party-2022
+
+**Spencer - Red Carpet Preview Screening 2022** - https://upnext.com.au/event/spencer-red-carpet-preview-screening-2022
+
+**Nightmare Alley - Red Carpet Preview Screening 2022** - https://upnext.com.au/event/nightmare-alley-red-carpet-preview-screening-2022
+
+**Avalanche with Scatter Light and more 2022** - https://upnext.com.au/event/avalanche-with-scatter-light-and-more-2022
+
+**Flickerfest 2022 Short Film Festival** - https://upnext.com.au/event/flickerfest-2022-short-film-festival
+
+**Introduction to Multi Block Woodcut Printmaking 2022** - https://upnext.com.au/event/introduction-to-multi-block-woodcut-printmaking-2022
+
+**Introduction to Arduino: Robogals UNSW 2022** - https://upnext.com.au/event/introduction-to-arduino-robogals-unsw-2022
+
+**Eugenia Lim: The People's Currency 2022** - https://upnext.com.au/event/eugenia-lim-the-peoples-currency-2022
+
+**Cindy Yuen-Zhe Chen: Spaces to stir 2022** - https://upnext.com.au/event/cindy-yuen-zhe-chen-spaces-to-stir-2022
+
+**Lunar New Year at Bodhi Restaurant 2022** - https://upnext.com.au/event/lunar-new-year-at-bodhi-restaurant-2022
+
+**Lunar New Year celebration at CHI by Lotus 2022** - https://upnext.com.au/event/lunar-new-year-celebration-at-chi-by-lotus-2022
+
+**Lunar New Year celebration at Lotus Barangaroo 2022** - https://upnext.com.au/event/lunar-new-year-celebration-at-lotus-barangaroo-2022
+
+**Lunar New Year celebration at Lotus dumpling bar 2022** - https://upnext.com.au/event/lunar-new-year-celebration-at-lotus-dumpling-bar-2022
+
+**Lunar New Year celebration at Lotus The Galeries 2022** - https://upnext.com.au/event/lunar-new-year-celebration-at-lotus-the-galeries-2022
+
+**Lunar New Year celebration at The Gardens by Lotus 2022** - https://upnext.com.au/event/lunar-new-year-celebration-at-the-gardens-by-lotus-2022
+
+**Oral history book presentation: South Flows the Pearl 2022** - https://upnext.com.au/event/oral-history-book-presentation-south-flows-the-pearl-2022
+
+**Taste of Chinatown: Lunar New Year food & culture tour 2022** - https://upnext.com.au/event/taste-of-chinatown-lunar-new-year-food-and-culture-tour-2022
+
+**Lunar New Year at Silks Crown Sydney 2022** - https://upnext.com.au/event/lunar-new-year-at-silks-crown-sydney-2022
+
+**Lunar New Year at Teahouse Crown Sydney 2022** - https://upnext.com.au/event/lunar-new-year-at-teahouse-crown-sydney-2022
+
+**Easy Tiger by Gabby Malpas- a Sydney Lunar Festival event 2022** - https://upnext.com.au/event/easy-tiger-by-gabby-malpas-a-sydney-lunar-festival-event-2022
+
+**Lunar New Year Dumpling Masterclass at The Gardens by Lotus 2022** - https://upnext.com.au/event/lunar-new-year-dumpling-masterclass-at-the-gardens-by-lotus-2022
+
+**The Yin and Yang of the Tiger 2022** - https://upnext.com.au/event/the-yin-and-yang-of-the-tiger-2022
+
+**Live at Mecca: La Boheme- songs and duets about love 2022** - https://upnext.com.au/event/live-at-mecca-la-boheme-songs-and-duets-about-love-2022
+
+**The essence of unity and harmony 2022** - https://upnext.com.au/event/the-essence-of-unity-and-harmony-2022
+
+**Celebrate Lunar New Year with art 2022** - https://upnext.com.au/event/celebrate-lunar-new-year-with-art-2022
+
+**Lunar New Year Celebration at Lotus Double Bay 2022** - https://upnext.com.au/event/lunar-new-year-celebration-at-lotus-double-bay-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
