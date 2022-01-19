@@ -1,0 +1,40 @@
+# New Sydney Events as at 19 Jan 2022
+New Sydney Events as at 19 Jan 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Westpac open-air cinema 2022** - https://upnext.com.au/event/westpac-open-air-cinema-2022
+
+**Bushrangers - water world 2022** - https://upnext.com.au/event/bushrangers-water-world-2022
+
+**Hendrick's Gin Garden at the Westpac Openair Cinema 2022** - https://upnext.com.au/event/hendricks-gin-garden-at-the-westpac-openair-cinema-2022
+
+**Kids vs wild water world 2022** - https://upnext.com.au/event/kids-vs-wild-water-world-2022
+
+**Nature & art - eco art for kids 2022** - https://upnext.com.au/event/nature-and-art-eco-art-for-kids-2022
+
+**Fairy escapades 2022** - https://upnext.com.au/event/fairy-escapades-2022
+
+**Park science - marvellous machines II 2022** - https://upnext.com.au/event/park-science-marvellous-machines-ii-2022
+
+**Aboriginal art class for kids 2022** - https://upnext.com.au/event/aboriginal-art-class-for-kids-2022
+
+**Landscape paintings exhibition opening 2022** - https://upnext.com.au/event/landscape-paintings-exhibition-opening-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
