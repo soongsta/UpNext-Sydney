@@ -1,0 +1,94 @@
+# New Sydney Events as at 07 Feb 2022
+New Sydney Events as at 07 Feb 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Bondi Beauty - Cryptic Adventure by Adventure Clues 2022** - https://upnext.com.au/event/bondi-beauty-cryptic-adventure-by-adventure-clues-2022
+
+**Claypan 2022** - https://upnext.com.au/event/claypan-2022
+
+**Group Exhibition: New 2022** - https://upnext.com.au/event/group-exhibition-new-2022
+
+**Join a group fitness class at Ian Thorpe Aquatic Centre 2022** - https://upnext.com.au/event/join-a-group-fitness-class-at-ian-thorpe-aquatic-centre-2022
+
+**Lunar New Year at Westfield Sydney 2022** - https://upnext.com.au/event/lunar-new-year-at-westfield-sydney-2022
+
+**NAS Art Club Term 1 2022 Printmaking** - https://upnext.com.au/event/nas-art-club-term-1-2022-printmaking
+
+**Nat Bartsch's Lullabies: Forever More 2022** - https://upnext.com.au/event/nat-bartschs-lullabies-forever-more-2022
+
+**Photoshop for screenprinters 2022** - https://upnext.com.au/event/photoshop-for-screenprinters-2022
+
+**Speakers' Corner - Public Speaking and Debating Classes 2022** - https://upnext.com.au/event/speakers-corner-public-speaking-and-debating-classes-2022
+
+**Vinnies Bondi & Manly #LocalLove 2022** - https://upnext.com.au/event/vinnies-bondi-and-manly-locallove-2022
+
+**Virtual Reality Escape Rooms 2022** - https://upnext.com.au/event/virtual-reality-escape-rooms-2022
+
+**With One Voice Redfern choir 2022** - https://upnext.com.au/event/with-one-voice-redfern-choir-2022
+
+**A stranger in a strange land 2022** - https://upnext.com.au/event/a-stranger-in-a-strange-land-2022
+
+**Navigating defects in apartments 2022** - https://upnext.com.au/event/navigating-defects-in-apartments-2022
+
+**Afro Step️ 2022** - https://upnext.com.au/event/afro-step-2022
+
+**Australia-China relations in 2022** - https://upnext.com.au/event/australia-china-relations-in-2022
+
+**Elizabeth Pulie: #117 (Survey) 2022** - https://upnext.com.au/event/elizabeth-pulie-117-survey-2022
+
+**Hammerhead + Josh Meader Trio 2022** - https://upnext.com.au/event/hammerhead-josh-meader-trio-2022
+
+**Izabela Pluta: nihilartikel 2022** - https://upnext.com.au/event/izabela-pluta-nihilartikel-2022
+
+**NAS Art Club Term 1 2022 Drawing** - https://upnext.com.au/event/nas-art-club-term-1-2022-drawing
+
+**Soupcon 2022** - https://upnext.com.au/event/soupcon-2022
+
+**Taz vs The Pleb 2022** - https://upnext.com.au/event/taz-vs-the-pleb-2022
+
+**Sydney Lunar Festival Artist Talk 2022** - https://upnext.com.au/event/sydney-lunar-festival-artist-talk-2022
+
+**Grand narrative(s) of blue and white 2022** - https://upnext.com.au/event/grand-narratives-of-blue-and-white-2022
+
+**Coil by re:group performance collective 2022** - https://upnext.com.au/event/coil-by-re-group-performance-collective-2022
+
+**Double Bill: Hilary Geddes & Nick Garbett's The Glider 2022** - https://upnext.com.au/event/double-bill-hilary-geddes-and-nick-garbetts-the-glider-2022
+
+**Finding love in ancient culture wisdom - Kanyini 2022** - https://upnext.com.au/event/finding-love-in-ancient-culture-wisdom-kanyini-2022
+
+**Gaffa gallery exhibitions 2022** - https://upnext.com.au/event/gaffa-gallery-exhibitions-2022
+
+**PACT Presents: 'Coil' by re:group 2022** - https://upnext.com.au/event/pact-presents-coil-by-re-group-2022
+
+**Powerhouse Late: Clay Dynasty 2022** - https://upnext.com.au/event/powerhouse-late-clay-dynasty-2022
+
+**Sean Mackenzie Trio 2022** - https://upnext.com.au/event/sean-mackenzie-trio-2022
+
+**Sip and paint a Tuscan hideaway 2022** - https://upnext.com.au/event/sip-and-paint-a-tuscan-hideaway-2022
+
+**The Art of Making: Studio Woodworkers Australia 2022** - https://upnext.com.au/event/the-art-of-making-studio-woodworkers-australia-2022
+
+**The Grad Show 2021 Opening Night 2022** - https://upnext.com.au/event/the-grad-show-2021-opening-night-2022
+
+**Yoga class with Christine 2022** - https://upnext.com.au/event/yoga-class-with-christine-2022
+
+**A Chorus Line 2022** - https://upnext.com.au/event/a-chorus-line-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
