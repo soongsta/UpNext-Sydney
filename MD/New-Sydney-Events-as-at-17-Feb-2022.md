@@ -1,0 +1,92 @@
+# New Sydney Events as at 17 Feb 2022
+New Sydney Events as at 17 Feb 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**One Ocean, Our Future 2022** - https://upnext.com.au/event/one-ocean-our-future-2022
+
+**Sydney Ideas: The shape of things to come 2022** - https://upnext.com.au/event/sydney-ideas-the-shape-of-things-to-come-2022
+
+**IT troubleshooting at Ultimo community centre 2022** - https://upnext.com.au/event/it-troubleshooting-at-ultimo-community-centre-2022
+
+**ITS Big House 2022** - https://upnext.com.au/event/its-big-house-2022
+
+**Queen Elizabeth II's Platinum Jubilee at NSW Parliament 2022** - https://upnext.com.au/event/queen-elizabeth-iis-platinum-jubilee-at-nsw-parliament-2022
+
+**Richard Collins Recent Watercolours 2022** - https://upnext.com.au/event/richard-collins-recent-watercolours-2022
+
+**Sh'bam: a new group fitness class at Gunyama Park 2022** - https://upnext.com.au/event/shbam-a-new-group-fitness-class-at-gunyama-park-2022
+
+**Sounds on the Terrace 2022** - https://upnext.com.au/event/sounds-on-the-terrace-2022
+
+**Tactile Workshop: working with clay led by Ebony Russell 2022** - https://upnext.com.au/event/tactile-workshop-working-with-clay-led-by-ebony-russell-2022
+
+**Twilight Food Fair 2022** - https://upnext.com.au/event/twilight-food-fair-2022
+
+**You can draw anything: 4-week drawing course 2022** - https://upnext.com.au/event/you-can-draw-anything-4-week-drawing-course-2022
+
+**Green Square Markets 2022** - https://upnext.com.au/event/green-square-markets-2022
+
+**Summer Street Festival 2022** - https://upnext.com.au/event/summer-street-festival-2022
+
+**4A Kids workshop: Ink painting with Cindy Yuen-Zhe Chen 2022** - https://upnext.com.au/event/4a-kids-workshop-ink-painting-with-cindy-yuen-zhe-chen-2022
+
+**Craft beers, cocktails & tacos 2022** - https://upnext.com.au/event/craft-beers-cocktails-and-tacos-2022
+
+**Darkness & Light 2022** - https://upnext.com.au/event/darkness-and-light-2022
+
+**Darlinghurst clothes swap 2022** - https://upnext.com.au/event/darlinghurst-clothes-swap-2022
+
+**Double Bill: Emanation + Delay 45 2022** - https://upnext.com.au/event/double-bill-emanation-delay-45-2022
+
+**Gregg Arthur + John Morrison's Swing City Big Band 2022** - https://upnext.com.au/event/gregg-arthur-john-morrisons-swing-city-big-band-2022
+
+**GymKidz cartwheel workshop 2022** - https://upnext.com.au/event/gymkidz-cartwheel-workshop-2022
+
+**Lifeline's giant book fair 2022** - https://upnext.com.au/event/lifelines-giant-book-fair-2022
+
+**NAS Art Club Contemporary Term 1 2022** - https://upnext.com.au/event/nas-art-club-contemporary-term-1-2022
+
+**OPPO #SelfieServe 2022** - https://upnext.com.au/event/oppo-selfieserve-2022
+
+**Save 10% at the New Maritime Museum Shop 2022** - https://upnext.com.au/event/save-10-at-the-new-maritime-museum-shop-2022
+
+**Summer Streets on Harris Street 2022** - https://upnext.com.au/event/summer-streets-on-harris-street-2022
+
+**The Arbour High Tea | Weekends at The Grounds 2022** - https://upnext.com.au/event/the-arbour-high-tea-weekends-at-the-grounds-2022
+
+**Vivaldi's Four Seasons 2022** - https://upnext.com.au/event/vivaldis-four-seasons-2022
+
+**Watercolour picnic for absolute beginners 2022** - https://upnext.com.au/event/watercolour-picnic-for-absolute-beginners-2022
+
+**Wildfire Cabaret Dinner and Show 2022** - https://upnext.com.au/event/wildfire-cabaret-dinner-and-show-2022
+
+**Double Bill: Mike Nock Sextet + HEKKA 2022** - https://upnext.com.au/event/double-bill-mike-nock-sextet-hekka-2022
+
+**Kids Kung Fu class 2022** - https://upnext.com.au/event/kids-kung-fu-class-2022
+
+**3:33am by Anjelica Murdaca 2022** - https://upnext.com.au/event/3-33am-by-anjelica-murdaca-2022
+
+**An evening with Prof Veena Sahajwalla - Recycling superstar 2022** - https://upnext.com.au/event/an-evening-with-prof-veena-sahajwalla-recycling-superstar-2022
+
+**Ice Box Challenge Sydney 2022** - https://upnext.com.au/event/ice-box-challenge-sydney-2022
+
+**This is a testing event 2022** - https://upnext.com.au/event/this-is-a-testing-event-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
