@@ -1,0 +1,102 @@
+# New Sydney Events as at 04 Mar 2022
+New Sydney Events as at 04 Mar 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Cartoon Network x DC Challenge: Justice League Unite! 2022** - https://upnext.com.au/event/cartoon-network-x-dc-challenge-justice-league-unite-2022
+
+**Celebrating Mardi Gras at BridgeClimb: United We Climb 2022** - https://upnext.com.au/event/celebrating-mardi-gras-at-bridgeclimb-united-we-climb-2022
+
+**Charles and Larry by Xavier Coy 2022** - https://upnext.com.au/event/charles-and-larry-by-xavier-coy-2022
+
+**Climb, Graze & Gaze 2022** - https://upnext.com.au/event/climb-graze-and-gaze-2022
+
+**Exhibition: Gareth Sansom 2022** - https://upnext.com.au/event/exhibition-gareth-sansom-2022
+
+**Future Fashion 2022** - https://upnext.com.au/event/future-fashion-2022
+
+**Startups confessions 2022** - https://upnext.com.au/event/startups-confessions-2022
+
+**Table Tennis at Pyrmont Community Centre 2022** - https://upnext.com.au/event/table-tennis-at-pyrmont-community-centre-2022
+
+**The Godfather trilogy screenings 2022** - https://upnext.com.au/event/the-godfather-trilogy-screenings-2022
+
+**Up Close with Her Black Book powered by Samsung 2022** - https://upnext.com.au/event/up-close-with-her-black-book-powered-by-samsung-2022
+
+**Virtual Reality Experiences 2022** - https://upnext.com.au/event/virtual-reality-experiences-2022
+
+**XOXO Gosford Girl - Sydney Fringe Sideshow Festival Comedy 2022** - https://upnext.com.au/event/xoxo-gosford-girl-sydney-fringe-sideshow-festival-comedy-2022
+
+**Free weekends at Sydney Living Museums 2022** - https://upnext.com.au/event/free-weekends-at-sydney-living-museums-2022
+
+**""Dreams of the Pomegranate City" ART Exhibition 2022"** - https://upnext.com.au/event/dreams-of-the-pomegranate-city-art-exhibition-2022
+
+**1st New South Wales Mounted Rifles in the Boer War 2022** - https://upnext.com.au/event/1st-new-south-wales-mounted-rifles-in-the-boer-war-2022
+
+**2 Jokers - Sydney Fringe Sideshow Festival 2022** - https://upnext.com.au/event/2-jokers-sydney-fringe-sideshow-festival-2022
+
+**Art workshops for children 2022** - https://upnext.com.au/event/art-workshops-for-children-2022
+
+**Black Label Comedy - Sydney Fringe Sideshow Festival Comedy 2022** - https://upnext.com.au/event/black-label-comedy-sydney-fringe-sideshow-festival-comedy-2022
+
+**Bottomless drag brunch at Reign at the QVB 2022** - https://upnext.com.au/event/bottomless-drag-brunch-at-reign-at-the-qvb-2022
+
+**Chocolate High Tea at Sir Stamford 2022** - https://upnext.com.au/event/chocolate-high-tea-at-sir-stamford-2022
+
+**Dirty Disco: Mardi Gras after party 2022** - https://upnext.com.au/event/dirty-disco-mardi-gras-after-party-2022
+
+**Forrester's Official Mardi Gras Parade Viewing Event 2022** - https://upnext.com.au/event/forresters-official-mardi-gras-parade-viewing-event-2022
+
+**Friendship festival 2022** - https://upnext.com.au/event/friendship-festival-2022
+
+**Gymkidz night out 2022** - https://upnext.com.au/event/gymkidz-night-out-2022
+
+**Jurassic World by Brickman 2022** - https://upnext.com.au/event/jurassic-world-by-brickman-2022
+
+**Making time with Kelly Dolly 2022** - https://upnext.com.au/event/making-time-with-kelly-dolly-2022
+
+**Mardi Gras On Top 2022** - https://upnext.com.au/event/mardi-gras-on-top-2022
+
+**Mardi Gras Viewing Party 2022** - https://upnext.com.au/event/mardi-gras-viewing-party-2022
+
+**Mojito Joe ft. Sylvie Woods 2022** - https://upnext.com.au/event/mojito-joe-ft-sylvie-woods-2022
+
+**OPERA & ORGAN | Jeremy Boulton & Stacey Yang 2022** - https://upnext.com.au/event/opera-and-organ-jeremy-boulton-and-stacey-yang-2022
+
+**Peter Maloney: National Living Trash 2022** - https://upnext.com.au/event/peter-maloney-national-living-trash-2022
+
+**Shambolic Doodles - Sydney Fringe Sideshow Festival Comedy 2022** - https://upnext.com.au/event/shambolic-doodles-sydney-fringe-sideshow-festival-comedy-2022
+
+**Social Good Summit Australia 2022** - https://upnext.com.au/event/social-good-summit-australia-2022
+
+**Spark PURPOSE 2022** - https://upnext.com.au/event/spark-purpose-2022
+
+**The Alphabet of Women 2022** - https://upnext.com.au/event/the-alphabet-of-women-2022
+
+**Ultimo walk 2022** - https://upnext.com.au/event/ultimo-walk-2022
+
+**UNAA (NSW) Reconnection Picnic 2022** - https://upnext.com.au/event/unaa-nsw-reconnection-picnic-2022
+
+**Rose by the Harbour - CANCELLED 2022** - https://upnext.com.au/event/rose-by-the-harbour-cancelled-2022
+
+**Soapbox orators in The Domain 2022** - https://upnext.com.au/event/soapbox-orators-in-the-domain-2022
+
+**Baxter Blues Club - Simon Kinny-Lewis 2022** - https://upnext.com.au/event/baxter-blues-club-simon-kinny-lewis-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
