@@ -1,0 +1,94 @@
+# New Sydney Events as at 08 Mar 2022
+New Sydney Events as at 08 Mar 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Art Month Sydney 2022** - https://upnext.com.au/event/art-month-sydney-2022
+
+**Computer Classes 2022** - https://upnext.com.au/event/computer-classes-2022
+
+**QVB Never Stop Exploring 2022** - https://upnext.com.au/event/qvb-never-stop-exploring-2022
+
+**ReadyMade Works Open Classes 2022** - https://upnext.com.au/event/readymade-works-open-classes-2022
+
+**REMIX Summit Sydney 2022** - https://upnext.com.au/event/remix-summit-sydney-2022
+
+**REMIX Sydney Summit 2022: Culture, Tech, Entrepreneurship** - https://upnext.com.au/event/remix-sydney-summit-2022-culture-tech-entrepreneurship
+
+**Tattooed: It's An Art at The Galeries 2022** - https://upnext.com.au/event/tattooed-its-an-art-at-the-galeries-2022
+
+**The New Normal: an International WomXn's Day Event 2022** - https://upnext.com.au/event/the-new-normal-an-international-womxns-day-event-2022
+
+**Vegan night at Kid Kyoto 2022** - https://upnext.com.au/event/vegan-night-at-kid-kyoto-2022
+
+**Weekly language classes for kids 2022** - https://upnext.com.au/event/weekly-language-classes-for-kids-2022
+
+**Laser cut jewellery 2022** - https://upnext.com.au/event/laser-cut-jewellery-2022
+
+**Catherine Hamlin Celebration Dinner 2022** - https://upnext.com.au/event/catherine-hamlin-celebration-dinner-2022
+
+**Commanding the heart: Anger 2022** - https://upnext.com.au/event/commanding-the-heart-anger-2022
+
+**Into the Wild 2022** - https://upnext.com.au/event/into-the-wild-2022
+
+**Lunchtime Lecture: A Place to Call Home 2022** - https://upnext.com.au/event/lunchtime-lecture-a-place-to-call-home-2022
+
+**Nashville's Rainee Blake in concert 2022** - https://upnext.com.au/event/nashvilles-rainee-blake-in-concert-2022
+
+**North By NorthWest the play 2022** - https://upnext.com.au/event/north-by-northwest-the-play-2022
+
+**Solidarity book launch party 2022** - https://upnext.com.au/event/solidarity-book-launch-party-2022
+
+**Village Vibes 2022** - https://upnext.com.au/event/village-vibes-2022
+
+**Connect Sydney Our Watch training 2022** - https://upnext.com.au/event/connect-sydney-our-watch-training-2022
+
+**An Ethical Recovery with Andrew Wear 2022** - https://upnext.com.au/event/an-ethical-recovery-with-andrew-wear-2022
+
+**Bubbles and Bias 2022** - https://upnext.com.au/event/bubbles-and-bias-2022
+
+**Classic Film Night: The Round-Up (1965) 2022** - https://upnext.com.au/event/classic-film-night-the-round-up-1965-2022
+
+**Handpicked x Galerie pompom: where art and wine become one 2022** - https://upnext.com.au/event/handpicked-x-galerie-pompom-where-art-and-wine-become-one-2022
+
+**Indie showcase: Trash Springfield, Bloodyarvo and Lariska 2022** - https://upnext.com.au/event/indie-showcase-trash-springfield-bloodyarvo-and-lariska-2022
+
+**Singular Voices: Courtney Marie Andrews 2022** - https://upnext.com.au/event/singular-voices-courtney-marie-andrews-2022
+
+**Sparkling Sydney dining tour 2022** - https://upnext.com.au/event/sparkling-sydney-dining-tour-2022
+
+**Strata improvement loans - the what, how and why 2022** - https://upnext.com.au/event/strata-improvement-loans-the-what-how-and-why-2022
+
+**Coming up for Air 2022** - https://upnext.com.au/event/coming-up-for-air-2022
+
+**Edge of Chaos 2022** - https://upnext.com.au/event/edge-of-chaos-2022
+
+**Improv Theatre Sydney ensemble shows 2022** - https://upnext.com.au/event/improv-theatre-sydney-ensemble-shows-2022
+
+**Improvised all-female show for International Women's Day! 2022** - https://upnext.com.au/event/improvised-all-female-show-for-international-womens-day-2022
+
+**Terra Aqua Terra 2022** - https://upnext.com.au/event/terra-aqua-terra-2022
+
+**White Pearl 2022** - https://upnext.com.au/event/white-pearl-2022
+
+**Explorations in Wood: A Designer/Maker Panel Discussion 2022** - https://upnext.com.au/event/explorations-in-wood-a-designer-maker-panel-discussion-2022
+
+**One too many 2022** - https://upnext.com.au/event/one-too-many-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
