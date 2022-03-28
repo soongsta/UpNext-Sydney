@@ -1,0 +1,74 @@
+# New Sydney Events as at 28 Mar 2022
+New Sydney Events as at 28 Mar 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**NSW Seniors Festival Expo 2022** - https://upnext.com.au/event/nsw-seniors-festival-expo-2022
+
+**Wednesday lunchtime circuit class 2022** - https://upnext.com.au/event/wednesday-lunchtime-circuit-class-2022
+
+**Games night 2022** - https://upnext.com.au/event/games-night-2022
+
+**Lunchtime Concert: Cello and Piano 2022** - https://upnext.com.au/event/lunchtime-concert-cello-and-piano-2022
+
+**Lunchtime Lecture: Hannah Szenesh - Blessed is the Match 2022** - https://upnext.com.au/event/lunchtime-lecture-hannah-szenesh-blessed-is-the-match-2022
+
+**Make your own 3-staked stool / plant stand 2022** - https://upnext.com.au/event/make-your-own-3-staked-stool-plant-stand-2022
+
+**Morbius Preview Screenings 2022** - https://upnext.com.au/event/morbius-preview-screenings-2022
+
+**SMB DIGITAL powered by CEBIT AUSTRALIA 2022** - https://upnext.com.au/event/smb-digital-powered-by-cebit-australia-2022
+
+**The 2022 Sydney Czech and Slovak Film Festival** - https://upnext.com.au/event/the-2022-sydney-czech-and-slovak-film-festival
+
+**The power of laughter for health and wellbeing 2022** - https://upnext.com.au/event/the-power-of-laughter-for-health-and-wellbeing-2022
+
+**City of Sydney library online book club: Literary Reboots 2022** - https://upnext.com.au/event/city-of-sydney-library-online-book-club-literary-reboots-2022
+
+**Building resilience in business 2022** - https://upnext.com.au/event/building-resilience-in-business-2022
+
+**Cobalt Blues 2022** - https://upnext.com.au/event/cobalt-blues-2022
+
+**Coconut Cream 2022** - https://upnext.com.au/event/coconut-cream-2022
+
+**Global Pitch Nights at The Studio 2022** - https://upnext.com.au/event/global-pitch-nights-at-the-studio-2022
+
+**Head in the Clouds by Johnny K 2022** - https://upnext.com.au/event/head-in-the-clouds-by-johnny-k-2022
+
+**Heroes of the Fourth Turning 2022** - https://upnext.com.au/event/heroes-of-the-fourth-turning-2022
+
+**Indie Thursdays: The Peppercorns + The Ben Fink Trio 2022** - https://upnext.com.au/event/indie-thursdays-the-peppercorns-the-ben-fink-trio-2022
+
+**Launch Event: SIXTY 2022** - https://upnext.com.au/event/launch-event-sixty-2022
+
+**Lynda La Plante in Conversation: Vanished 2022** - https://upnext.com.au/event/lynda-la-plante-in-conversation-vanished-2022
+
+**One&All community market and art event 2022** - https://upnext.com.au/event/one-and-all-community-market-and-art-event-2022
+
+**SIXTY: The Journal of Australian Ceramics 60th Anniversary 2022** - https://upnext.com.au/event/sixty-the-journal-of-australian-ceramics-60th-anniversary-2022
+
+**The Miner's Wife 2022** - https://upnext.com.au/event/the-miners-wife-2022
+
+**Trivia night 2022 for Sydney's Kids in need** - https://upnext.com.au/event/trivia-night-2022-for-sydneys-kids-in-need
+
+**Seniors Festival meditation class and morning tea 2022** - https://upnext.com.au/event/seniors-festival-meditation-class-and-morning-tea-2022
+
+**Australian Heritage Festival 2022** - https://upnext.com.au/event/australian-heritage-festival-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
