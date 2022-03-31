@@ -40,7 +40,7 @@ export default {
     articles = articles.slice().map((item) => {
       return {
         // name: item.slug.substr(25).replace(/=/g, ' '),
-        mydate: dayjs(item.slug.substr(25)),
+        mydate: dayjs(item.slug.substr(24)),
         slug: item.slug,
       }
     })
@@ -52,7 +52,7 @@ export default {
   },
   methods: {
     fmtDate: function (val) {
-      return dayjs(val).format('d MMM YYYY')
+      return dayjs(val).format('DD MMM YYYY')
     },
   },
 }
