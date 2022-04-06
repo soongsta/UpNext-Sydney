@@ -1,0 +1,74 @@
+# New Sydney Events as at 06 Apr 2022
+New Sydney Events as at 06 Apr 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Wednesday night circuit class 2022** - https://upnext.com.au/event/wednesday-night-circuit-class-2022
+
+**Australian Sport Program 2022** - https://upnext.com.au/event/australian-sport-program-2022
+
+**Chocolate sensation at Botanic House 2022** - https://upnext.com.au/event/chocolate-sensation-at-botanic-house-2022
+
+**Chocolate sensation at Centennial Homestead 2022** - https://upnext.com.au/event/chocolate-sensation-at-centennial-homestead-2022
+
+**Chocolate sensation at Terrace on the Domain 2022** - https://upnext.com.au/event/chocolate-sensation-at-terrace-on-the-domain-2022
+
+**Daily Service of Remembrance 2022** - https://upnext.com.au/event/daily-service-of-remembrance-2022
+
+**Rhythm is life 2022** - https://upnext.com.au/event/rhythm-is-life-2022
+
+**Scottie Marsh Street art self-guided walk 2022** - https://upnext.com.au/event/scottie-marsh-street-art-self-guided-walk-2022
+
+**Sea of Hands 2022** - https://upnext.com.au/event/sea-of-hands-2022
+
+**Sydney Sights & Sounds walking tour 2022** - https://upnext.com.au/event/sydney-sights-and-sounds-walking-tour-2022
+
+**Frontline Yoga at the Anzac Memorial 2022** - https://upnext.com.au/event/frontline-yoga-at-the-anzac-memorial-2022
+
+**Talk and Tease: Comedy burlesque dinner show 2022** - https://upnext.com.au/event/talk-and-tease-comedy-burlesque-dinner-show-2022
+
+**Tanica cocktail tasting 2022** - https://upnext.com.au/event/tanica-cocktail-tasting-2022
+
+**Carlotta Centanni "Speak Love" album launch 2022** - https://upnext.com.au/event/carlotta-centanni-speak-love-album-launch-2022
+
+**Ceramics: Level 2 with Ej 2022** - https://upnext.com.au/event/ceramics-level-2-with-ej-2022
+
+**City Art Walking Tour - Chinatown at Night 2022** - https://upnext.com.au/event/city-art-walking-tour-chinatown-at-night-2022
+
+**Every Body Dance Now 2022** - https://upnext.com.au/event/every-body-dance-now-2022
+
+**Great Southern Nights Street Jazz at The Swinging Cat 2022** - https://upnext.com.au/event/great-southern-nights-street-jazz-at-the-swinging-cat-2022
+
+**Green Square Easter egg hunt and craft activity 2022** - https://upnext.com.au/event/green-square-easter-egg-hunt-and-craft-activity-2022
+
+**Honey workshop with The Urban Beehive 2022** - https://upnext.com.au/event/honey-workshop-with-the-urban-beehive-2022
+
+**Monumental 2022** - https://upnext.com.au/event/monumental-2022
+
+**Music at 107 - Low Flung & Megan Alice Clune 2022** - https://upnext.com.au/event/music-at-107-low-flung-and-megan-alice-clune-2022
+
+**PAW Patrol® Live! "The Great Pirate Adventure" 2022** - https://upnext.com.au/event/paw-patrol-live-the-great-pirate-adventure-2022
+
+**Porcelain Intensive Ceramics Workshop with Ruth Ju-Shih Li 2022** - https://upnext.com.au/event/porcelain-intensive-ceramics-workshop-with-ruth-ju-shih-li-2022
+
+**Pyrmont - Architectural Time Capsule Walk 2022** - https://upnext.com.au/event/pyrmont-architectural-time-capsule-walk-2022
+
+**REcreate Market 2022** - https://upnext.com.au/event/recreate-market-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
