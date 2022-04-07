@@ -1,0 +1,54 @@
+# New Sydney Events as at 07 Apr 2022
+New Sydney Events as at 07 Apr 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Harbour Sights running tour 2022** - https://upnext.com.au/event/harbour-sights-running-tour-2022
+
+**Movie nights: La Mano Invisible (The Invisible Hand) (2016) 2022** - https://upnext.com.au/event/movie-nights-la-mano-invisible-the-invisible-hand-2016-2022
+
+**Watsons Bay walking tour 2022** - https://upnext.com.au/event/watsons-bay-walking-tour-2022
+
+**Music at 107 - Beryl, Matt Sitas & BLAUhAUS! 2022** - https://upnext.com.au/event/music-at-107-beryl-matt-sitas-and-blauhaus-2022
+
+**Fresh food cooking show with Jane De Graaff 2022** - https://upnext.com.au/event/fresh-food-cooking-show-with-jane-de-graaff-2022
+
+**Sail away on the Titanic dinner party 2022** - https://upnext.com.au/event/sail-away-on-the-titanic-dinner-party-2022
+
+**Sydney's Social Amazing Race 2022** - https://upnext.com.au/event/sydneys-social-amazing-race-2022
+
+**The Australian Ballet: Hallberg in Conversation 2022** - https://upnext.com.au/event/the-australian-ballet-hallberg-in-conversation-2022
+
+**The Cointreau Margarita Kombi is popping up at The Greens 2022** - https://upnext.com.au/event/the-cointreau-margarita-kombi-is-popping-up-at-the-greens-2022
+
+**Ave Regina: God, be with the Mother 2022** - https://upnext.com.au/event/ave-regina-god-be-with-the-mother-2022
+
+**Career Success: Ready for Interview Success 2022** - https://upnext.com.au/event/career-success-ready-for-interview-success-2022
+
+**Family Play Taiko Workshops 2022** - https://upnext.com.au/event/family-play-taiko-workshops-2022
+
+**Memories of Theresienstadt 2022** - https://upnext.com.au/event/memories-of-theresienstadt-2022
+
+**Play Taiko Intro Workshops 2022** - https://upnext.com.au/event/play-taiko-intro-workshops-2022
+
+**Ventuno Walsh Bay Historical Walking Tour & Lunch 2022** - https://upnext.com.au/event/ventuno-walsh-bay-historical-walking-tour-and-lunch-2022
+
+**Walk For Kids With Cancer (in honour of Bob "Tug" Wilson) 2022** - https://upnext.com.au/event/walk-for-kids-with-cancer-in-honour-of-bob-tug-wilson-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
