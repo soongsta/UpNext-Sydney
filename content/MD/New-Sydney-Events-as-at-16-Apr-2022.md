@@ -1,0 +1,94 @@
+# New Sydney Events as at 16 Apr 2022
+New Sydney Events as at 16 Apr 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Wildlife Photographer of the Year 2022** - https://upnext.com.au/event/wildlife-photographer-of-the-year-2022
+
+**Buy-Back Move Forward with IKEA 2022** - https://upnext.com.au/event/buy-back-move-forward-with-ikea-2022
+
+**Easter Bake Sale 2022** - https://upnext.com.au/event/easter-bake-sale-2022
+
+**Enjoy a new type of Easter Egg Hunt in your local 2022** - https://upnext.com.au/event/enjoy-a-new-type-of-easter-egg-hunt-in-your-local-2022
+
+**Experimental Choreography Residency EOI 2022** - https://upnext.com.au/event/experimental-choreography-residency-eoi-2022
+
+**NEW Dwayne 'The Rock' Johnson at the Ultimate A-List Party! 2022** - https://upnext.com.au/event/new-dwayne-the-rock-johnson-at-the-ultimate-a-list-party-2022
+
+**Sydney City Walk 2022** - https://upnext.com.au/event/sydney-city-walk-2022
+
+**Celebrate Easter! 2022** - https://upnext.com.au/event/celebrate-easter-2022
+
+**Easter egg cracking at The Grounds of Alexandria 2022** - https://upnext.com.au/event/easter-egg-cracking-at-the-grounds-of-alexandria-2022
+
+**Easter Sunday family lunch feast 2022** - https://upnext.com.au/event/easter-sunday-family-lunch-feast-2022
+
+**Easter Sunday lunch at Sailmaker restaurant 2022** - https://upnext.com.au/event/easter-sunday-lunch-at-sailmaker-restaurant-2022
+
+**Easter Sunday Mad Hatter's High Tea 2022** - https://upnext.com.au/event/easter-sunday-mad-hatters-high-tea-2022
+
+**Egg-cellent Easter trail 2022** - https://upnext.com.au/event/egg-cellent-easter-trail-2022
+
+**Feast Easter Sunday Brunch at The Sheraton Grand Hyde Park 2022** - https://upnext.com.au/event/feast-easter-sunday-brunch-at-the-sheraton-grand-hyde-park-2022
+
+**The Orchestra Project performs Brahms and Richard Strauss 2022** - https://upnext.com.au/event/the-orchestra-project-performs-brahms-and-richard-strauss-2022
+
+**Empathy Gym (Workshop Series) 2022** - https://upnext.com.au/event/empathy-gym-workshop-series-2022
+
+**Luminosity: A Salvatore Zofrea Retrospective 2022** - https://upnext.com.au/event/luminosity-a-salvatore-zofrea-retrospective-2022
+
+**Ithaka: Q&A screening 2022** - https://upnext.com.au/event/ithaka-q-and-a-screening-2022
+
+**UNSW Orchestra & Wind Symphony Concert: Poems & Psalms 2022** - https://upnext.com.au/event/unsw-orchestra-and-wind-symphony-concert-poems-and-psalms-2022
+
+**Augmented reality colouring experience 2022** - https://upnext.com.au/event/augmented-reality-colouring-experience-2022
+
+**Ballet School Holiday Workshop 2022** - https://upnext.com.au/event/ballet-school-holiday-workshop-2022
+
+**Contemporary vocal studio - audition and class 2022** - https://upnext.com.au/event/contemporary-vocal-studio-audition-and-class-2022
+
+**Dogfight 2022** - https://upnext.com.au/event/dogfight-2022
+
+**Free bike tune ups: Darlinghurst 2022** - https://upnext.com.au/event/free-bike-tune-ups-darlinghurst-2022
+
+**Isn't It Queer? 2022** - https://upnext.com.au/event/isnt-it-queer-2022
+
+**Malo Malo : Listening Party : Danny G Felix at Tuesday Jazz 2022** - https://upnext.com.au/event/malo-malo-listening-party-danny-g-felix-at-tuesday-jazz-2022
+
+**School holiday Spanish camp 2022** - https://upnext.com.au/event/school-holiday-spanish-camp-2022
+
+**Soul ensemble audition and class 2022** - https://upnext.com.au/event/soul-ensemble-audition-and-class-2022
+
+**School Holidays: Creative Book Making (8-11 years) 2022** - https://upnext.com.au/event/school-holidays-creative-book-making-8-11-years-2022
+
+**Elizabeth: Seniors Morning Tea preview screening 2022** - https://upnext.com.au/event/elizabeth-seniors-morning-tea-preview-screening-2022
+
+**Clayton Doley's Flashy Dashbacks Live at Civic Underground 2022** - https://upnext.com.au/event/clayton-doleys-flashy-dashbacks-live-at-civic-underground-2022
+
+**Fancy Plants dishes out 20,000 free plant-based snacks 2022** - https://upnext.com.au/event/fancy-plants-dishes-out-20-000-free-plant-based-snacks-2022
+
+**One Night In Sapporo - Japanese Feast & Bottomless Booze 2022** - https://upnext.com.au/event/one-night-in-sapporo-japanese-feast-and-bottomless-booze-2022
+
+**School Holidays: Creative Book Making (12-16 years) 2022** - https://upnext.com.au/event/school-holidays-creative-book-making-12-16-years-2022
+
+**The vase and flower show 2 2022** - https://upnext.com.au/event/the-vase-and-flower-show-2-2022
+
+**Wolfgang's Magical Musical Circus 2022** - https://upnext.com.au/event/wolfgangs-magical-musical-circus-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
