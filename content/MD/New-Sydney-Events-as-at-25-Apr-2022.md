@@ -1,0 +1,102 @@
+# New Sydney Events as at 25 Apr 2022
+New Sydney Events as at 25 Apr 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Badu Gili: Wonder Women 2022** - https://upnext.com.au/event/badu-gili-wonder-women-2022
+
+**Spend the afternoon of ANZAC Day at The Harbour View Hotel 2022** - https://upnext.com.au/event/spend-the-afternoon-of-anzac-day-at-the-harbour-view-hotel-2022
+
+**The top 10 hidden harbour beaches tour 2022** - https://upnext.com.au/event/the-top-10-hidden-harbour-beaches-tour-2022
+
+**Author Talk With Maame Blue 2022** - https://upnext.com.au/event/author-talk-with-maame-blue-2022
+
+**Brenna Harding - Extraordinary Women Speakers Series 4 2022** - https://upnext.com.au/event/brenna-harding-extraordinary-women-speakers-series-4-2022
+
+**Citizens for climate action 2022** - https://upnext.com.au/event/citizens-for-climate-action-2022
+
+**Content that drives clicks [webinar] 2022** - https://upnext.com.au/event/content-that-drives-clicks-webinar-2022
+
+**Mother's Day Cooking Class with Chef David Bitton 2022** - https://upnext.com.au/event/mothers-day-cooking-class-with-chef-david-bitton-2022
+
+**Rai Thistlethwayte & Ben Vanderwall 2022** - https://upnext.com.au/event/rai-thistlethwayte-and-ben-vanderwall-2022
+
+**Screenings: Angels of the Battlefield 2022** - https://upnext.com.au/event/screenings-angels-of-the-battlefield-2022
+
+**Spanish for Kids online classes 2022** - https://upnext.com.au/event/spanish-for-kids-online-classes-2022
+
+**Storytime @ Darling Square, 3-5 years 2022** - https://upnext.com.au/event/storytime-darling-square-3-5-years-2022
+
+**Civic launchpad workshops for ages 18 to 26 2022** - https://upnext.com.au/event/civic-launchpad-workshops-for-ages-18-to-26-2022
+
+**Web 3 What's In It for Me: Music and NFTs 2022** - https://upnext.com.au/event/web-3-whats-in-it-for-me-music-and-nfts-2022
+
+**Lunchtime Concert: Alistair Nelson 2022** - https://upnext.com.au/event/lunchtime-concert-alistair-nelson-2022
+
+**Art Club Term 2: Drawing 2022** - https://upnext.com.au/event/art-club-term-2-drawing-2022
+
+**Brigadoon by Neglected Musicals 2022** - https://upnext.com.au/event/brigadoon-by-neglected-musicals-2022
+
+**Corporate Governance 101: responsibilities for new directors 2022** - https://upnext.com.au/event/corporate-governance-101-responsibilities-for-new-directors-2022
+
+**Dear Prime Minister: Letters to Robert Menzies, 1949-1966 2022** - https://upnext.com.au/event/dear-prime-minister-letters-to-robert-menzies-1949-1966-2022
+
+**Funk Knuckle + Gene Gibson Band : Funky Wednesday @ Civic 2022** - https://upnext.com.au/event/funk-knuckle-gene-gibson-band-funky-wednesday-civic-2022
+
+**Gay men speed dating 2.0 in the Rocks: ages 25-45 2022** - https://upnext.com.au/event/gay-men-speed-dating-20-in-the-rocks-ages-25-45-2022
+
+**Grow with Google for women in business 2022** - https://upnext.com.au/event/grow-with-google-for-women-in-business-2022
+
+**Illusion of Boundaries and the Gift of Multispecies Justice 2022** - https://upnext.com.au/event/illusion-of-boundaries-and-the-gift-of-multispecies-justice-2022
+
+**Lapink Skin Lab Miss Australia Chinese Grand Final 2021 2022** - https://upnext.com.au/event/lapink-skin-lab-miss-australia-chinese-grand-final-2021-2022
+
+**Mechanics of Galaxy Evolution 2022** - https://upnext.com.au/event/mechanics-of-galaxy-evolution-2022
+
+**Metalwork: Intro to Welding 2022** - https://upnext.com.au/event/metalwork-intro-to-welding-2022
+
+**Mood Active's Virtual Zumba Gold course 2022** - https://upnext.com.au/event/mood-actives-virtual-zumba-gold-course-2022
+
+**Pilates mat classes for beginners 2022** - https://upnext.com.au/event/pilates-mat-classes-for-beginners-2022
+
+**Refugee chef dinner banquet 2022** - https://upnext.com.au/event/refugee-chef-dinner-banquet-2022
+
+**sensai 繊細 - delicate 2022** - https://upnext.com.au/event/sensai-delicate-2022
+
+**Sydney Science Forum: Dr Karl's Fact vs Fiction 2022** - https://upnext.com.au/event/sydney-science-forum-dr-karls-fact-vs-fiction-2022
+
+**UNSW MedConnect | Putting the brakes on dementia 2022** - https://upnext.com.au/event/unsw-medconnect-putting-the-brakes-on-dementia-2022
+
+**Dervla McTiernan in Conversation: The Murder Rule 2022** - https://upnext.com.au/event/dervla-mctiernan-in-conversation-the-murder-rule-2022
+
+**City of Sydney library online book club: Memoir 2022** - https://upnext.com.au/event/city-of-sydney-library-online-book-club-memoir-2022
+
+**Cold Ales & Crime Tales: The Australian Heritage Hotel event 2022** - https://upnext.com.au/event/cold-ales-and-crime-tales-the-australian-heritage-hotel-event-2022
+
+**Drawing Sounds at The Salons 2022** - https://upnext.com.au/event/drawing-sounds-at-the-salons-2022
+
+**Fermenting workshop 2022** - https://upnext.com.au/event/fermenting-workshop-2022
+
+**Grow with Google for LGBTQIA+ businesses 2022** - https://upnext.com.au/event/grow-with-google-for-lgbtqia-businesses-2022
+
+**I'll have what she's having: Jeff's NYC celebrity dinners 2022** - https://upnext.com.au/event/ill-have-what-shes-having-jeffs-nyc-celebrity-dinners-2022
+
+**Jimmy Hazelwood - Native Ambition live showcase 2022** - https://upnext.com.au/event/jimmy-hazelwood-native-ambition-live-showcase-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
