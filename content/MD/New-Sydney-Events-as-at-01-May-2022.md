@@ -1,0 +1,102 @@
+# New Sydney Events as at 01 May 2022
+New Sydney Events as at 01 May 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Handcrafted...always the perfect gift 2022** - https://upnext.com.au/event/handcraftedalways-the-perfect-gift-2022
+
+**Walk for Women's and Girls' Emergency Centre 2022** - https://upnext.com.au/event/walk-for-womens-and-girls-emergency-centre-2022
+
+**Gentle fitness class 2022** - https://upnext.com.au/event/gentle-fitness-class-2022
+
+**Make your own toolbox (Redfern) | Level 1 beginners 2022** - https://upnext.com.au/event/make-your-own-toolbox-redfern-level-1-beginners-2022
+
+**Big Deal - feature documentary 2022** - https://upnext.com.au/event/big-deal-feature-documentary-2022
+
+**Adult beginner group guitar 101 2022** - https://upnext.com.au/event/adult-beginner-group-guitar-101-2022
+
+**Art Club Term 2: Photomedia 2022** - https://upnext.com.au/event/art-club-term-2-photomedia-2022
+
+**Bush school for 5-12 year olds 2022** - https://upnext.com.au/event/bush-school-for-5-12-year-olds-2022
+
+**BYO Instrument Ensemble 2022** - https://upnext.com.au/event/byo-instrument-ensemble-2022
+
+**FoodLab Sydney May program 2022** - https://upnext.com.au/event/foodlab-sydney-may-program-2022
+
+**Four-Part Harmony 2022** - https://upnext.com.au/event/four-part-harmony-2022
+
+**Impro basics 2022** - https://upnext.com.au/event/impro-basics-2022
+
+**Improv comedy cagefight 2022** - https://upnext.com.au/event/improv-comedy-cagefight-2022
+
+**Taco & Tequila Fiesta at SoCal 2022** - https://upnext.com.au/event/taco-and-tequila-fiesta-at-socal-2022
+
+**Tasty Trivia X delicous. magazine 2022** - https://upnext.com.au/event/tasty-trivia-x-delicous-magazine-2022
+
+**Term 2 art classes for adults and children 2022** - https://upnext.com.au/event/term-2-art-classes-for-adults-and-children-2022
+
+**Vocal Fundamentals 2022** - https://upnext.com.au/event/vocal-fundamentals-2022
+
+**Child's Play: playgrounds in Sydney in the 20th century 2022** - https://upnext.com.au/event/childs-play-playgrounds-in-sydney-in-the-20th-century-2022
+
+**Free bike tune ups: Camperdown 2022** - https://upnext.com.au/event/free-bike-tune-ups-camperdown-2022
+
+**Humanitarian engineering - empowering lives 2022** - https://upnext.com.au/event/humanitarian-engineering-empowering-lives-2022
+
+**Storytelling content that connects [webinar] 2022** - https://upnext.com.au/event/storytelling-content-that-connects-webinar-2022
+
+**Vote for Women 2022** - https://upnext.com.au/event/vote-for-women-2022
+
+**Lunchtime Concert: Georgia Lowe 2022** - https://upnext.com.au/event/lunchtime-concert-georgia-lowe-2022
+
+**Diplomatico x Alibi Announce Their Sustainable Dinner Series 2022** - https://upnext.com.au/event/diplomatico-x-alibi-announce-their-sustainable-dinner-series-2022
+
+**Doctor Strange 2: Preview screenings 2022** - https://upnext.com.au/event/doctor-strange-2-preview-screenings-2022
+
+**Social dance in Ultimo Community Centre 2022** - https://upnext.com.au/event/social-dance-in-ultimo-community-centre-2022
+
+**Agus Wijaya: Tata Reka 2022** - https://upnext.com.au/event/agus-wijaya-tata-reka-2022
+
+**Australian Cocktail Month at The Swinging Cat 2022** - https://upnext.com.au/event/australian-cocktail-month-at-the-swinging-cat-2022
+
+**Commanding the heart: Lust 2022** - https://upnext.com.au/event/commanding-the-heart-lust-2022
+
+**DeTox: Clean it up - Place based artistic practice 2022** - https://upnext.com.au/event/detox-clean-it-up-place-based-artistic-practice-2022
+
+**KGV train with the trainer 2022** - https://upnext.com.au/event/kgv-train-with-the-trainer-2022
+
+**Make your own native bee hive (Redfern) | Level 1 beginners 2022** - https://upnext.com.au/event/make-your-own-native-bee-hive-redfern-level-1-beginners-2022
+
+**Missionvale Aus: A South African Night Out charity event 2022** - https://upnext.com.au/event/missionvale-aus-a-south-african-night-out-charity-event-2022
+
+**Nose to tail: dinner & demo 2022** - https://upnext.com.au/event/nose-to-tail-dinner-and-demo-2022
+
+**Peter Shilling 2022** - https://upnext.com.au/event/peter-shilling-2022
+
+**Sound Citizens: Australian Women Broadcasters, 1923-1956 2022** - https://upnext.com.au/event/sound-citizens-australian-women-broadcasters-1923-1956-2022
+
+**Tell me before the sun explodes 2022** - https://upnext.com.au/event/tell-me-before-the-sun-explodes-2022
+
+**Tender: A Curated Group Exhibition by White Rhino Artspace 2022** - https://upnext.com.au/event/tender-a-curated-group-exhibition-by-white-rhino-artspace-2022
+
+**The Steam Room: A night of science comedy ft Dr Karl & more 2022** - https://upnext.com.au/event/the-steam-room-a-night-of-science-comedy-ft-dr-karl-and-more-2022
+
+**Rethinking China with Yun Jiang 2022** - https://upnext.com.au/event/rethinking-china-with-yun-jiang-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
