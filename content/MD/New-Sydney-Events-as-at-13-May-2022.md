@@ -1,0 +1,78 @@
+# New Sydney Events as at 13 May 2022
+New Sydney Events as at 13 May 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**School holiday workshops: Boost kids confidence & skills 2022** - https://upnext.com.au/event/school-holiday-workshops-boost-kids-confidence-and-skills-2022
+
+**Daniel Muggleton: White & Wrong (But Mostly White) 2022** - https://upnext.com.au/event/daniel-muggleton-white-and-wrong-but-mostly-white-2022
+
+**Go Local: Gin & Tonic Festival at Sheraton Grand Hyde Park 2022** - https://upnext.com.au/event/go-local-gin-and-tonic-festival-at-sheraton-grand-hyde-park-2022
+
+**International Collage Day 2022** - https://upnext.com.au/event/international-collage-day-2022
+
+**Make a Jellyfish Succulent Hanging Baskets 2022** - https://upnext.com.au/event/make-a-jellyfish-succulent-hanging-baskets-2022
+
+**My show didn't fit on this stage 2022** - https://upnext.com.au/event/my-show-didnt-fit-on-this-stage-2022
+
+**Picnic One Night Stand | Simon Caldwell + Kali 2022** - https://upnext.com.au/event/picnic-one-night-stand-simon-caldwell-kali-2022
+
+**Ric Herbert's 'Get Rich' band 2022** - https://upnext.com.au/event/ric-herberts-get-rich-band-2022
+
+**Salon des Refuses: the alternative Archibald & Wynne Prize 2022** - https://upnext.com.au/event/salon-des-refuses-the-alternative-archibald-and-wynne-prize-2022
+
+**Scent Workshop with Anna May Kirk and Ainslie Walker 2022** - https://upnext.com.au/event/scent-workshop-with-anna-may-kirk-and-ainslie-walker-2022
+
+**The SECC family fun day 2022** - https://upnext.com.au/event/the-secc-family-fun-day-2022
+
+**International student Autumn city tour 2022** - https://upnext.com.au/event/international-student-autumn-city-tour-2022
+
+**Caribbean Zouk Party - Gervais Koffi & The African Diaspora 2022** - https://upnext.com.au/event/caribbean-zouk-party-gervais-koffi-and-the-african-diaspora-2022
+
+**Dylan Hartas solo at Grand Days supported by Picaro 2022** - https://upnext.com.au/event/dylan-hartas-solo-at-grand-days-supported-by-picaro-2022
+
+**Flower Arranging + Tea 2022** - https://upnext.com.au/event/flower-arranging-tea-2022
+
+**Mercy Ships Australia "Unplugged" 2022** - https://upnext.com.au/event/mercy-ships-australia-unplugged-2022
+
+**Paddington library 130th birthday party 2022** - https://upnext.com.au/event/paddington-library-130th-birthday-party-2022
+
+**Phoenix Collective Sunday sessions 2022** - https://upnext.com.au/event/phoenix-collective-sunday-sessions-2022
+
+**Secrets to Figure Drawing - one day workshop 2022** - https://upnext.com.au/event/secrets-to-figure-drawing-one-day-workshop-2022
+
+**Solo at the Bowlo 2022** - https://upnext.com.au/event/solo-at-the-bowlo-2022
+
+**Sparkling Sydney lush lunch 2022** - https://upnext.com.au/event/sparkling-sydney-lush-lunch-2022
+
+**Sydney Park community planting day 2022** - https://upnext.com.au/event/sydney-park-community-planting-day-2022
+
+**Tactile tours: Pliable Planes 2022** - https://upnext.com.au/event/tactile-tours-pliable-planes-2022
+
+**The Bower's home DIY course 2022** - https://upnext.com.au/event/the-bowers-home-diy-course-2022
+
+**'Picture a scientist' national screening and panel 2022** - https://upnext.com.au/event/picture-a-scientist-national-screening-and-panel-2022
+
+**Night Creatures 2022** - https://upnext.com.au/event/night-creatures-2022
+
+**Night Creatures at SEA LIFE Sydney Aquarium 2022** - https://upnext.com.au/event/night-creatures-at-sea-life-sydney-aquarium-2022
+
+**Sydney Eisteddfod 2022** - https://upnext.com.au/event/sydney-eisteddfod-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
