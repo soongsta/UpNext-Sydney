@@ -1,0 +1,84 @@
+# New Sydney Events as at 23 May 2022
+New Sydney Events as at 23 May 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Aboriginal and Torres Strait Islander workshops 2022** - https://upnext.com.au/event/aboriginal-and-torres-strait-islander-workshops-2022
+
+**A place where we can be together 2022** - https://upnext.com.au/event/a-place-where-we-can-be-together-2022
+
+**Andrew Dickeson Quintet + Steve Barry Quartet 2022** - https://upnext.com.au/event/andrew-dickeson-quintet-steve-barry-quartet-2022
+
+**BARAYAGAL: First Nations choir 2022** - https://upnext.com.au/event/barayagal-first-nations-choir-2022
+
+**BENCHED by Jamila Main 2022** - https://upnext.com.au/event/benched-by-jamila-main-2022
+
+**Dinner & burlesque 2022** - https://upnext.com.au/event/dinner-and-burlesque-2022
+
+**Four Pillars gin dinner 2022** - https://upnext.com.au/event/four-pillars-gin-dinner-2022
+
+**Julia Gillard in conversation with Tegan Taylor 2022** - https://upnext.com.au/event/julia-gillard-in-conversation-with-tegan-taylor-2022
+
+**Lunchtime concert: Luu Hong Quang 2022** - https://upnext.com.au/event/lunchtime-concert-luu-hong-quang-2022
+
+**National simultaneous storytime at Green Square Library 2022** - https://upnext.com.au/event/national-simultaneous-storytime-at-green-square-library-2022
+
+**New Kid on the Blockchain 2022** - https://upnext.com.au/event/new-kid-on-the-blockchain-2022
+
+**SIXTY finissage EVENT 2022** - https://upnext.com.au/event/sixty-finissage-event-2022
+
+**Sydney Ideas: Reconcile what? 2022** - https://upnext.com.au/event/sydney-ideas-reconcile-what-2022
+
+**The Battle for a future: farming and extraction 2022** - https://upnext.com.au/event/the-battle-for-a-future-farming-and-extraction-2022
+
+**The Judaica collection from the Jewish Museum in Prague 2022** - https://upnext.com.au/event/the-judaica-collection-from-the-jewish-museum-in-prague-2022
+
+**Top Gun: Maverick - Preview Screenings 2022** - https://upnext.com.au/event/top-gun-maverick-preview-screenings-2022
+
+**Vivid '22: House Of Hues at Barangaroo House 2022** - https://upnext.com.au/event/vivid-22-house-of-hues-at-barangaroo-house-2022
+
+**Vivid glitter party 2022** - https://upnext.com.au/event/vivid-glitter-party-2022
+
+**City of Sydney library online book club: Armchair Travel 2022** - https://upnext.com.au/event/city-of-sydney-library-online-book-club-armchair-travel-2022
+
+**Caleb Reid- Art Exhibition 2022** - https://upnext.com.au/event/caleb-reid-art-exhibition-2022
+
+**Carolyn Packer trio 2022** - https://upnext.com.au/event/carolyn-packer-trio-2022
+
+**Flow & Glow 2022** - https://upnext.com.au/event/flow-and-glow-2022
+
+**Free bike tune ups: Green Square 2022** - https://upnext.com.au/event/free-bike-tune-ups-green-square-2022
+
+**Jerry Liew and Diane Livingstone Retrospective 2022** - https://upnext.com.au/event/jerry-liew-and-diane-livingstone-retrospective-2022
+
+**LBDGroup May dinner & conversations 2022** - https://upnext.com.au/event/lbdgroup-may-dinner-and-conversations-2022
+
+**Official Australian Adult Industry Awards - A.A.I.A.® Gala 2022** - https://upnext.com.au/event/official-australian-adult-industry-awards-aaia-gala-2022
+
+**Pinchgut Opera presents Orontea by Cesti 2022** - https://upnext.com.au/event/pinchgut-opera-presents-orontea-by-cesti-2022
+
+**Powerhouse Late: Gaming 2022** - https://upnext.com.au/event/powerhouse-late-gaming-2022
+
+**Purpose presents: Talking Reconciliation 2022** - https://upnext.com.au/event/purpose-presents-talking-reconciliation-2022
+
+**The best of Anime soundtracks at the SMC 2022** - https://upnext.com.au/event/the-best-of-anime-soundtracks-at-the-smc-2022
+
+**Theatre Vignette #3 'The Iliad: Out Loud' by William Zappa 2022** - https://upnext.com.au/event/theatre-vignette-3-the-iliad-out-loud-by-william-zappa-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
