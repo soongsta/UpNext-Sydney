@@ -1,0 +1,102 @@
+# New Sydney Events as at 30 May 2022
+New Sydney Events as at 30 May 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**After school cooking club 2022** - https://upnext.com.au/event/after-school-cooking-club-2022
+
+**Fruit Cocktail: Pride Edition 2022** - https://upnext.com.au/event/fruit-cocktail-pride-edition-2022
+
+**Weekly drawing for kids classes 2022** - https://upnext.com.au/event/weekly-drawing-for-kids-classes-2022
+
+**2022 Innovation Week** - https://upnext.com.au/event/2022-innovation-week
+
+**Clay and Sip Pottery Class for Date Night 2022** - https://upnext.com.au/event/clay-and-sip-pottery-class-for-date-night-2022
+
+**Clay and Sip Wheel Throwing Pottery Class 2022** - https://upnext.com.au/event/clay-and-sip-wheel-throwing-pottery-class-2022
+
+**Glow in the MODE 2022** - https://upnext.com.au/event/glow-in-the-mode-2022
+
+**Here 2022** - https://upnext.com.au/event/here-2022
+
+**Mindful Tea Ceremony Experience 2022** - https://upnext.com.au/event/mindful-tea-ceremony-experience-2022
+
+**Monday virtual matched speed dating Sydney - ages 37-49 2022** - https://upnext.com.au/event/monday-virtual-matched-speed-dating-sydney-ages-37-49-2022
+
+**Monet and Moscato Class 2022** - https://upnext.com.au/event/monet-and-moscato-class-2022
+
+**Outdoor sip and paint 2022** - https://upnext.com.au/event/outdoor-sip-and-paint-2022
+
+**Pop-up glow bar for Vivid 2022** - https://upnext.com.au/event/pop-up-glow-bar-for-vivid-2022
+
+**Powerhouse Architecture Commission 2022** - https://upnext.com.au/event/powerhouse-architecture-commission-2022
+
+**Shape 2021 2022** - https://upnext.com.au/event/shape-2021-2022
+
+**The Rainbow Room 2022** - https://upnext.com.au/event/the-rainbow-room-2022
+
+**Unique Vivid experience on a popular showboat Vivid cruise 2022** - https://upnext.com.au/event/unique-vivid-experience-on-a-popular-showboat-vivid-cruise-2022
+
+**UV glowing cocktails at Sheraton Grand Hyde Park 2022** - https://upnext.com.au/event/uv-glowing-cocktails-at-sheraton-grand-hyde-park-2022
+
+**VIVID High Tea at Sheraton Hyde Park Sydney 2022** - https://upnext.com.au/event/vivid-high-tea-at-sheraton-hyde-park-sydney-2022
+
+**Vivid Sydney at Sea Museum 2022** - https://upnext.com.au/event/vivid-sydney-at-sea-museum-2022
+
+**Vivid Sydney Bar & Dinner onboard Captain Cook Cruises 2022** - https://upnext.com.au/event/vivid-sydney-bar-and-dinner-onboard-captain-cook-cruises-2022
+
+**Vivid Sydney Dinner Cruise 2022** - https://upnext.com.au/event/vivid-sydney-dinner-cruise-2022
+
+**Whale watching jet ski tour 2022** - https://upnext.com.au/event/whale-watching-jet-ski-tour-2022
+
+**Free hearing check services at Ron Williams Community Centre 2022** - https://upnext.com.au/event/free-hearing-check-services-at-ron-williams-community-centre-2022
+
+**Morning tea and talk with photographer Barbara McGrady 2022** - https://upnext.com.au/event/morning-tea-and-talk-with-photographer-barbara-mcgrady-2022
+
+**Black Cockatoo by Geoffrey Atherden Directed by Wesley Enoch 2022** - https://upnext.com.au/event/black-cockatoo-by-geoffrey-atherden-directed-by-wesley-enoch-2022
+
+**Growth hacking [webinar] 2022** - https://upnext.com.au/event/growth-hacking-webinar-2022
+
+**Learn Zentangle® Art: lunchtime tanglers 2022** - https://upnext.com.au/event/learn-zentangle-art-lunchtime-tanglers-2022
+
+**NSW Leaders in Conversation - Unpacking the Uluru Statement 2022** - https://upnext.com.au/event/nsw-leaders-in-conversation-unpacking-the-uluru-statement-2022
+
+**The Steam Room encore show ft. Doctor Karl 2022** - https://upnext.com.au/event/the-steam-room-encore-show-ft-doctor-karl-2022
+
+**Vivid lights secret bar crawl 2022** - https://upnext.com.au/event/vivid-lights-secret-bar-crawl-2022
+
+**Morning tea and talk with photographer Barbara McGrady 2022** - https://upnext.com.au/event/morning-tea-and-talk-with-photographer-barbara-mcgrady-2022
+
+**Reconciliation Week: Lunch and film screening 2022** - https://upnext.com.au/event/reconciliation-week-lunch-and-film-screening-2022
+
+**4 Course Dinner & Harbour Cruise at Ventuno Walsh Bay 2022** - https://upnext.com.au/event/4-course-dinner-and-harbour-cruise-at-ventuno-walsh-bay-2022
+
+**A Place of Land and Sea 有山有水的地方 2022** - https://upnext.com.au/event/a-place-of-land-and-sea-2022
+
+**Are You Havin' A Laugh?! Comedy night @ Marlborough Hotel 2022** - https://upnext.com.au/event/are-you-havin-a-laugh-comedy-night-marlborough-hotel-2022
+
+**Australia's Great Depression by Joan Beaumont 2022** - https://upnext.com.au/event/australias-great-depression-by-joan-beaumont-2022
+
+**Enjoy VIVID from Sydney Harbour 2022** - https://upnext.com.au/event/enjoy-vivid-from-sydney-harbour-2022
+
+**HOPE butterfly installation 2022** - https://upnext.com.au/event/hope-butterfly-installation-2022
+
+**How to enter photo competitions and win 2022** - https://upnext.com.au/event/how-to-enter-photo-competitions-and-win-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
