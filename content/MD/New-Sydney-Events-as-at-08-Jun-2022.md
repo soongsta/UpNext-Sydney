@@ -1,0 +1,44 @@
+# New Sydney Events as at 08 Jun 2022
+New Sydney Events as at 08 Jun 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**It's Time to Write Your Book 2022** - https://upnext.com.au/event/its-time-to-write-your-book-2022
+
+**Tech Central - home of social and innovation mavericks 2022** - https://upnext.com.au/event/tech-central-home-of-social-and-innovation-mavericks-2022
+
+**The Cost of Capital - Sydney 2022** - https://upnext.com.au/event/the-cost-of-capital-sydney-2022
+
+**Transformative repair x ADC live auction 2022** - https://upnext.com.au/event/transformative-repair-x-adc-live-auction-2022
+
+**Welcome refugees fundraiser 2022** - https://upnext.com.au/event/welcome-refugees-fundraiser-2022
+
+**'The Tuna Show' by Kuon Omakase 2022** - https://upnext.com.au/event/the-tuna-show-by-kuon-omakase-2022
+
+**100 Climate Conversation Sebastian Pfautsch:Urban adaptation 2022** - https://upnext.com.au/event/100-climate-conversation-sebastian-pfautsch-urban-adaptation-2022
+
+**100 Climate Conversations Bruce Pascoe: Nourishing Country 2022** - https://upnext.com.au/event/100-climate-conversations-bruce-pascoe-nourishing-country-2022
+
+**100 Climate Conversations: Sebastian Pfautsch 2022** - https://upnext.com.au/event/100-climate-conversations-sebastian-pfautsch-2022
+
+**100 climate sconversations: Bruce Pascoe 2022** - https://upnext.com.au/event/100-climate-sconversations-bruce-pascoe-2022
+
+**Chai 2022** - https://upnext.com.au/event/chai-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
