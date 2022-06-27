@@ -1,0 +1,102 @@
+# New Sydney Events as at 27 Jun 2022
+New Sydney Events as at 27 Jun 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**How to lead meaningfully in these uncertain times? 2022** - https://upnext.com.au/event/how-to-lead-meaningfully-in-these-uncertain-times-2022
+
+**Why is place so important to innovation systems? 2022** - https://upnext.com.au/event/why-is-place-so-important-to-innovation-systems-2022
+
+**Wildfire Lounge Hospo Mondays 2022** - https://upnext.com.au/event/wildfire-lounge-hospo-mondays-2022
+
+**Is diversity the key to unlocking the potential of Web3? 2022** - https://upnext.com.au/event/is-diversity-the-key-to-unlocking-the-potential-of-web3-2022
+
+**Is the Metaverse part of your reality? 2022** - https://upnext.com.au/event/is-the-metaverse-part-of-your-reality-2022
+
+**Ben's Book Club featuring 'Loveland' by Robert Lukins 2022** - https://upnext.com.au/event/bens-book-club-featuring-loveland-by-robert-lukins-2022
+
+**Bo Seo in conversation with Ceridwen Dovey 2022** - https://upnext.com.au/event/bo-seo-in-conversation-with-ceridwen-dovey-2022
+
+**Evening with award winning artist Rosa Fedele 2022** - https://upnext.com.au/event/evening-with-award-winning-artist-rosa-fedele-2022
+
+**Free bike tune ups: Rosebery 2022** - https://upnext.com.au/event/free-bike-tune-ups-rosebery-2022
+
+**Penelope Trappes 2022** - https://upnext.com.au/event/penelope-trappes-2022
+
+**Shape 2021: Year 11 Digital Seminars 2022** - https://upnext.com.au/event/shape-2021-year-11-digital-seminars-2022
+
+**Torbreck x truffle wine dinners 2022** - https://upnext.com.au/event/torbreck-x-truffle-wine-dinners-2022
+
+**Wheel throwing fundamentals with Sam Cree 2022** - https://upnext.com.au/event/wheel-throwing-fundamentals-with-sam-cree-2022
+
+**The future is now: where is synthetic biology taking us? 2022** - https://upnext.com.au/event/the-future-is-now-where-is-synthetic-biology-taking-us-2022
+
+**The power of nature + human ingenuity = shaping our future? 2022** - https://upnext.com.au/event/the-power-of-nature-human-ingenuity-shaping-our-future-2022
+
+**Biggest Morning Tea at Cliff Noble Community Centre 2022** - https://upnext.com.au/event/biggest-morning-tea-at-cliff-noble-community-centre-2022
+
+**An Evening with Jonathan Franzen 2022** - https://upnext.com.au/event/an-evening-with-jonathan-franzen-2022
+
+**Jackson Harrison Trio 2022** - https://upnext.com.au/event/jackson-harrison-trio-2022
+
+**Miss Universal 2022** - https://upnext.com.au/event/miss-universal-2022
+
+**Relativity 2022** - https://upnext.com.au/event/relativity-2022
+
+**Slay 4 Pay 2022** - https://upnext.com.au/event/slay-4-pay-2022
+
+**Space Hub Connect - June 2022** - https://upnext.com.au/event/space-hub-connect-june-2022
+
+**City of Sydney library online book club: Crime and Thrillers 2022** - https://upnext.com.au/event/city-of-sydney-library-online-book-club-crime-and-thrillers-2022
+
+**Quantum in space: Will it conquer the final frontier? 2022** - https://upnext.com.au/event/quantum-in-space-will-it-conquer-the-final-frontier-2022
+
+**Travel guide to decarbonisation: How do we get there? 2022** - https://upnext.com.au/event/travel-guide-to-decarbonisation-how-do-we-get-there-2022
+
+**Who rules in the Metaverse? 2022** - https://upnext.com.au/event/who-rules-in-the-metaverse-2022
+
+**Meditation workshop 2022** - https://upnext.com.au/event/meditation-workshop-2022
+
+**Alon Ilsar: Trigger Happy 'Visualised' 2022** - https://upnext.com.au/event/alon-ilsar-trigger-happy-visualised-2022
+
+**Art Flow: a wellbeing experience 2022** - https://upnext.com.au/event/art-flow-a-wellbeing-experience-2022
+
+**Cruel Intentions: the '90s Musical 2022** - https://upnext.com.au/event/cruel-intentions-the-90s-musical-2022
+
+**de-Rozario sculpture exhibition 2022** - https://upnext.com.au/event/de-rozario-sculpture-exhibition-2022
+
+**Film night for NAIDOC Week 2022** - https://upnext.com.au/event/film-night-for-naidoc-week-2022
+
+**Free online course: Selling Made Easy 2022** - https://upnext.com.au/event/free-online-course-selling-made-easy-2022
+
+**Hard Quiz Live - Hosted by Tom Gleeson 2022** - https://upnext.com.au/event/hard-quiz-live-hosted-by-tom-gleeson-2022
+
+**Jamyang + Julian Moss + Moonwood: Indie Thursday 2022** - https://upnext.com.au/event/jamyang-julian-moss-moonwood-indie-thursday-2022
+
+**Judy Garland's 100th Birthday Extravaganza 2022** - https://upnext.com.au/event/judy-garlands-100th-birthday-extravaganza-2022
+
+**LBDGroup June Dinner & Conversations 2022** - https://upnext.com.au/event/lbdgroup-june-dinner-and-conversations-2022
+
+**Overcome from the impacts of childhood trauma in 3 months 2022** - https://upnext.com.au/event/overcome-from-the-impacts-of-childhood-trauma-in-3-months-2022
+
+**Powerhouse Late: Julian Wessels 2022** - https://upnext.com.au/event/powerhouse-late-julian-wessels-2022
+
+**What's next in a Future T.B.D? 2022** - https://upnext.com.au/event/whats-next-in-a-future-tbd-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
