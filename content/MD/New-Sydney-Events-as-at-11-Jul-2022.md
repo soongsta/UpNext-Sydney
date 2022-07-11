@@ -1,0 +1,92 @@
+# New Sydney Events as at 11 Jul 2022
+New Sydney Events as at 11 Jul 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Winter 2022 school holiday art workshops** - https://upnext.com.au/event/winter-2022-school-holiday-art-workshops
+
+**Youth in the City: Sports day at Perry Park 2022** - https://upnext.com.au/event/youth-in-the-city-sports-day-at-perry-park-2022
+
+**A citrus bounty 2022** - https://upnext.com.au/event/a-citrus-bounty-2022
+
+**Finger knitting at Darling Square Library (ages 8 to 11) 2022** - https://upnext.com.au/event/finger-knitting-at-darling-square-library-ages-8-to-11-2022
+
+**AAMI'S Clanger Buster Clinics for kids 2022** - https://upnext.com.au/event/aamis-clanger-buster-clinics-for-kids-2022
+
+**Monkey Baa presents Wolfgang's Magical Musical Circus 2022** - https://upnext.com.au/event/monkey-baa-presents-wolfgangs-magical-musical-circus-2022
+
+**T-shirt tote bags at Darling Square Library (ages 8 to 11) 2022** - https://upnext.com.au/event/t-shirt-tote-bags-at-darling-square-library-ages-8-to-11-2022
+
+**'There's a Sea in my Bedroom' Presented by the ACO 2022** - https://upnext.com.au/event/theres-a-sea-in-my-bedroom-presented-by-the-aco-2022
+
+**Andrew Robertson presents "Jazz Today & Tomorrow" 2022** - https://upnext.com.au/event/andrew-robertson-presents-jazz-today-and-tomorrow-2022
+
+**Celebrate Bastille Day in Style at Beckett's in Glebe 2022** - https://upnext.com.au/event/celebrate-bastille-day-in-style-at-becketts-in-glebe-2022
+
+**Emerging Women in Music Cassandra Doyle & Jamie-Lee Xu 2022** - https://upnext.com.au/event/emerging-women-in-music-cassandra-doyle-and-jamie-lee-xu-2022
+
+**Frozen school holiday workshop 2022** - https://upnext.com.au/event/frozen-school-holiday-workshop-2022
+
+**HSC Help: Resume & CV Writing 2022** - https://upnext.com.au/event/hsc-help-resume-and-cv-writing-2022
+
+**Kismet: Vignettes for violin and piano 2022** - https://upnext.com.au/event/kismet-vignettes-for-violin-and-piano-2022
+
+**Make a comeback from a health crisis 2022** - https://upnext.com.au/event/make-a-comeback-from-a-health-crisis-2022
+
+**Mixed Media & Encaustic Workshop with Randal Arvilla 2022** - https://upnext.com.au/event/mixed-media-and-encaustic-workshop-with-randal-arvilla-2022
+
+**Speed Dating Ages 32-44 2022** - https://upnext.com.au/event/speed-dating-ages-32-44-2022
+
+**Vinyl record mono printing (12-17 years) 2022** - https://upnext.com.au/event/vinyl-record-mono-printing-12-17-years-2022
+
+**Surrealist collage (8-12 years) 2022** - https://upnext.com.au/event/surrealist-collage-8-12-years-2022
+
+**AYO Return to the Stage 2022** - https://upnext.com.au/event/ayo-return-to-the-stage-2022
+
+**Bastille Day: around the world celebration 2022** - https://upnext.com.au/event/bastille-day-around-the-world-celebration-2022
+
+**Bastille Festival 2022** - https://upnext.com.au/event/bastille-festival-2022
+
+**Creature Preacher: Non-binary queer cabaret 2022** - https://upnext.com.au/event/creature-preacher-non-binary-queer-cabaret-2022
+
+**Make and take natural beauty 2022** - https://upnext.com.au/event/make-and-take-natural-beauty-2022
+
+**Matched speed dating in the Inner-West: ages 42-52 2022** - https://upnext.com.au/event/matched-speed-dating-in-the-inner-west-ages-42-52-2022
+
+**Pasta and gnocchi cooking class 2022** - https://upnext.com.au/event/pasta-and-gnocchi-cooking-class-2022
+
+**ROTPG Solo live music at the Wildfire Lounge - Greg Nunan 2022** - https://upnext.com.au/event/rotpg-solo-live-music-at-the-wildfire-lounge-greg-nunan-2022
+
+**This Old Cello Box 2022** - https://upnext.com.au/event/this-old-cello-box-2022
+
+**Ugly Love 2022** - https://upnext.com.au/event/ugly-love-2022
+
+**Where the Crawdads Sing: Dendy Dames preview screening 2022** - https://upnext.com.au/event/where-the-crawdads-sing-dendy-dames-preview-screening-2022
+
+**Windows to the Wild 2022** - https://upnext.com.au/event/windows-to-the-wild-2022
+
+**Women's Voices: Stories to Stage 2022** - https://upnext.com.au/event/womens-voices-stories-to-stage-2022
+
+**100 Climate Conversations: Arnagretta Hunter 2022** - https://upnext.com.au/event/100-climate-conversations-arnagretta-hunter-2022
+
+**Attempts on Her Life by Martin Crimp 2022** - https://upnext.com.au/event/attempts-on-her-life-by-martin-crimp-2022
+
+**Basket weaving workshop for kids 2022** - https://upnext.com.au/event/basket-weaving-workshop-for-kids-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
