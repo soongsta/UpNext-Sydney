@@ -1,0 +1,102 @@
+# New Sydney Events as at 01 Aug 2022
+New Sydney Events as at 01 Aug 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Colin Lanceley: Earthly Delights 2022** - https://upnext.com.au/event/colin-lanceley-earthly-delights-2022
+
+**Grace Wilkinson: Dreamy 2022** - https://upnext.com.au/event/grace-wilkinson-dreamy-2022
+
+**Pawgust 2022** - https://upnext.com.au/event/pawgust-2022
+
+**Vocal Horizons Level 1 2022** - https://upnext.com.au/event/vocal-horizons-level-1-2022
+
+**Women's art group 2022** - https://upnext.com.au/event/womens-art-group-2022
+
+**Art Safari 2022** - https://upnext.com.au/event/art-safari-2022
+
+**Book Lovers Club with Deborah Abela 2022** - https://upnext.com.au/event/book-lovers-club-with-deborah-abela-2022
+
+**Dark Sings Weill: The Seven Deadly Sins and Other Songs 2022** - https://upnext.com.au/event/dark-sings-weill-the-seven-deadly-sins-and-other-songs-2022
+
+**Designing Sydney's food system for the future 2022** - https://upnext.com.au/event/designing-sydneys-food-system-for-the-future-2022
+
+**Dymocks Luncheon with journalist Dr. Norman Swan 2022** - https://upnext.com.au/event/dymocks-luncheon-with-journalist-dr-norman-swan-2022
+
+**Olivier Rasir: recent works 2022** - https://upnext.com.au/event/olivier-rasir-recent-works-2022
+
+**Prosper from your passion sharing your knowledge online 2022** - https://upnext.com.au/event/prosper-from-your-passion-sharing-your-knowledge-online-2022
+
+**Web3 Essentials: Understanding SAFT Agreements 2022** - https://upnext.com.au/event/web3-essentials-understanding-saft-agreements-2022
+
+**Australian Taiko Academy: wednesday elements II (term 3) 2022** - https://upnext.com.au/event/australian-taiko-academy-wednesday-elements-ii-term-3-2022
+
+**Denis Clarke: Reconfiguration 2022** - https://upnext.com.au/event/denis-clarke-reconfiguration-2022
+
+**Desert Colours 2022** - https://upnext.com.au/event/desert-colours-2022
+
+**Enigma 2022** - https://upnext.com.au/event/enigma-2022
+
+**Eternityland 2022** - https://upnext.com.au/event/eternityland-2022
+
+**Oracle - the myth 2022** - https://upnext.com.au/event/oracle-the-myth-2022
+
+**Piano for beginners (level 1) 2022** - https://upnext.com.au/event/piano-for-beginners-level-1-2022
+
+**Social drop-in futsal: all ability levels 2022** - https://upnext.com.au/event/social-drop-in-futsal-all-ability-levels-2022
+
+**Stepping On 2022** - https://upnext.com.au/event/stepping-on-2022
+
+**Strange Case of Dr Jekyll and Mr Hyde 2022** - https://upnext.com.au/event/strange-case-of-dr-jekyll-and-mr-hyde-2022
+
+**swiss+oz art expo 2022 - 3 to 20 August** - https://upnext.com.au/event/swissoz-art-expo-2022-3-to-20-august
+
+**Understanding your annual franchise update obligations 2022** - https://upnext.com.au/event/understanding-your-annual-franchise-update-obligations-2022
+
+**What Now? Child Survivors in the aftermath of the Holocaust 2022** - https://upnext.com.au/event/what-now-child-survivors-in-the-aftermath-of-the-holocaust-2022
+
+**FREE TALK - How to convert a motorcycle to electric. 2022** - https://upnext.com.au/event/free-talk-how-to-convert-a-motorcycle-to-electric-2022
+
+**A Night with Superorganism 2022** - https://upnext.com.au/event/a-night-with-superorganism-2022
+
+**BonkerZ Presents The Fast $100 Comedy Competition 2022** - https://upnext.com.au/event/bonkerz-presents-the-fast-100-comedy-competition-2022
+
+**Camp comedy casting call with Joel Creasey 2022** - https://upnext.com.au/event/camp-comedy-casting-call-with-joel-creasey-2022
+
+**John Murray 2022** - https://upnext.com.au/event/john-murray-2022
+
+**Kaz Therese: Sleeplessness 2022** - https://upnext.com.au/event/kaz-therese-sleeplessness-2022
+
+**La Louisiane Jazz Troupe Live at The Swinging Cat 2022** - https://upnext.com.au/event/la-louisiane-jazz-troupe-live-at-the-swinging-cat-2022
+
+**LEGENDS UNTOLD exclusive whiskey event at Zephyr Sky Bar. 2022** - https://upnext.com.au/event/legends-untold-exclusive-whiskey-event-at-zephyr-sky-bar-2022
+
+**Meet the makers of Oz cinema 2022** - https://upnext.com.au/event/meet-the-makers-of-oz-cinema-2022
+
+**Profile: Contemporary Jewellery and Object Award 2022** - https://upnext.com.au/event/profile-contemporary-jewellery-and-object-award-2022
+
+**School to Work Workshop - Thursday August 4 2022** - https://upnext.com.au/event/school-to-work-workshop-thursday-august-4-2022
+
+**The Doris for Indie Thursday 2022** - https://upnext.com.au/event/the-doris-for-indie-thursday-2022
+
+**Toastmasters International 2022** - https://upnext.com.au/event/toastmasters-international-2022
+
+**Venture Beyond By Penfolds 2022** - https://upnext.com.au/event/venture-beyond-by-penfolds-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
