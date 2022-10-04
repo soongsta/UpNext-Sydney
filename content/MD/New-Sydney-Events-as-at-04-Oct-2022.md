@@ -1,0 +1,102 @@
+# New Sydney Events as at 04 Oct 2022
+New Sydney Events as at 04 Oct 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Manga comic book workshop for kids aged 9 to 12 2022** - https://upnext.com.au/event/manga-comic-book-workshop-for-kids-aged-9-to-12-2022
+
+**Anna Fienberg - online author workshop 2022** - https://upnext.com.au/event/anna-fienberg-online-author-workshop-2022
+
+**Club Fitbit 2022** - https://upnext.com.au/event/club-fitbit-2022
+
+**Distance landscape painting with Rowen Matthews 2022** - https://upnext.com.au/event/distance-landscape-painting-with-rowen-matthews-2022
+
+**Family Films at Dendy Newtown! 2022** - https://upnext.com.au/event/family-films-at-dendy-newtown-2022
+
+**Hack Sounds @ 107 Green Square 2022** - https://upnext.com.au/event/hack-sounds-107-green-square-2022
+
+**Imagine - Book Quiz 2022** - https://upnext.com.au/event/imagine-book-quiz-2022
+
+**Meditation hour 2022** - https://upnext.com.au/event/meditation-hour-2022
+
+**New Percussion Solos By Australian Female Composers 2022** - https://upnext.com.au/event/new-percussion-solos-by-australian-female-composers-2022
+
+**New Works for Percussion Ensemble 2022** - https://upnext.com.au/event/new-works-for-percussion-ensemble-2022
+
+**Pink Afternoon Tea at The Fullerton Hotel Sydney 2022** - https://upnext.com.au/event/pink-afternoon-tea-at-the-fullerton-hotel-sydney-2022
+
+**Pink October High Tea at Shangri-La Sydney 2022** - https://upnext.com.au/event/pink-october-high-tea-at-shangri-la-sydney-2022
+
+**Point Line Area: A percussion rtual for 64 percussionists 2022** - https://upnext.com.au/event/point-line-area-a-percussion-rtual-for-64-percussionists-2022
+
+**Stop Motion Animation with Dinalie Dabarera (Ages 9-12) 2022** - https://upnext.com.au/event/stop-motion-animation-with-dinalie-dabarera-ages-9-12-2022
+
+**Sydney Night Noodle Markets presented by Citi 2022** - https://upnext.com.au/event/sydney-night-noodle-markets-presented-by-citi-2022
+
+**The Groove 2022** - https://upnext.com.au/event/the-groove-2022
+
+**Tour - SLNSW 'Imagine...the Wonder of Picture Books' 2022** - https://upnext.com.au/event/tour-slnsw-imaginethe-wonder-of-picture-books-2022
+
+**World Taco Day at SoCal Sydney 2022** - https://upnext.com.au/event/world-taco-day-at-socal-sydney-2022
+
+**An evening with The Pacific Belles 2022** - https://upnext.com.au/event/an-evening-with-the-pacific-belles-2022
+
+**Billy Joel live at Yankee Stadium 2022** - https://upnext.com.au/event/billy-joel-live-at-yankee-stadium-2022
+
+**Creative Use Of Rhythm In Any Music 2022** - https://upnext.com.au/event/creative-use-of-rhythm-in-any-music-2022
+
+**Dancing Through Disaster: Jane Theau 2022** - https://upnext.com.au/event/dancing-through-disaster-jane-theau-2022
+
+**Embellished by Robyn Kennedy 2022** - https://upnext.com.au/event/embellished-by-robyn-kennedy-2022
+
+**Entropy Awakening: Exhibition launch 2022** - https://upnext.com.au/event/entropy-awakening-exhibition-launch-2022
+
+**For the Grace of You Go I 2022** - https://upnext.com.au/event/for-the-grace-of-you-go-i-2022
+
+**Future Science Talks Sydney 2022** - https://upnext.com.au/event/future-science-talks-sydney-2022
+
+**Game Design with Unity (Ages 9-12) 2022** - https://upnext.com.au/event/game-design-with-unity-ages-9-12-2022
+
+**Green Architecture for Kids Workshop 2022** - https://upnext.com.au/event/green-architecture-for-kids-workshop-2022
+
+**High tech architecture for kids workshop 2022** - https://upnext.com.au/event/high-tech-architecture-for-kids-workshop-2022
+
+**Leichhardt school holiday workshops 2022** - https://upnext.com.au/event/leichhardt-school-holiday-workshops-2022
+
+**Lucinda Gifford - Author Workshop 2022** - https://upnext.com.au/event/lucinda-gifford-author-workshop-2022
+
+**New Concepts In Taiko 2022** - https://upnext.com.au/event/new-concepts-in-taiko-2022
+
+**Reflexion by Gerry King 2022** - https://upnext.com.au/event/reflexion-by-gerry-king-2022
+
+**School Holiday Kung Fu Workshops 2022** - https://upnext.com.au/event/school-holiday-kung-fu-workshops-2022
+
+**School holiday skateboarding clinic - Rose Bay 2022** - https://upnext.com.au/event/school-holiday-skateboarding-clinic-rose-bay-2022
+
+**Simon Barker In Concert 2022** - https://upnext.com.au/event/simon-barker-in-concert-2022
+
+**Stories and craft with Grandma Poss 2022** - https://upnext.com.au/event/stories-and-craft-with-grandma-poss-2022
+
+**Teachings/Transformations 2022** - https://upnext.com.au/event/teachings-transformations-2022
+
+**Teddy Bear School Holiday Workshop - Bondi Junction 2022** - https://upnext.com.au/event/teddy-bear-school-holiday-workshop-bondi-junction-2022
+
+**The World Of Tabla And Fusion With Other Forms 2022** - https://upnext.com.au/event/the-world-of-tabla-and-fusion-with-other-forms-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
