@@ -1,0 +1,102 @@
+# New Sydney Events as at 06 Oct 2022
+New Sydney Events as at 06 Oct 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**DIY eco-luxe bath bombs 2022** - https://upnext.com.au/event/diy-eco-luxe-bath-bombs-2022
+
+**Dua Lipa at Madame Tussauds Sydney 2022** - https://upnext.com.au/event/dua-lipa-at-madame-tussauds-sydney-2022
+
+**Eastside Unlocked 2022** - https://upnext.com.au/event/eastside-unlocked-2022
+
+**It's An Art: Wellness Remix Workshop Series at The Galeries 2022** - https://upnext.com.au/event/its-an-art-wellness-remix-workshop-series-at-the-galeries-2022
+
+**Lonely Together 2022** - https://upnext.com.au/event/lonely-together-2022
+
+**Make hand rolled pasta for team building 2022** - https://upnext.com.au/event/make-hand-rolled-pasta-for-team-building-2022
+
+**Make your own gemstone mala 2022** - https://upnext.com.au/event/make-your-own-gemstone-mala-2022
+
+**Neon Playground at Bancho 2022** - https://upnext.com.au/event/neon-playground-at-bancho-2022
+
+**Sarah Grunstein 2022** - https://upnext.com.au/event/sarah-grunstein-2022
+
+**The Flock by Linda Blair 2022** - https://upnext.com.au/event/the-flock-by-linda-blair-2022
+
+**Theatre workshop: Writing your story 2022** - https://upnext.com.au/event/theatre-workshop-writing-your-story-2022
+
+**Trend Forecasting 2023/24 2022** - https://upnext.com.au/event/trend-forecasting-2023-24-2022
+
+**Book launch: Bon and Lesley by Shaun Prescott 2022** - https://upnext.com.au/event/book-launch-bon-and-lesley-by-shaun-prescott-2022
+
+**Tia Maria's Two of a Kind Party brings double the fun 2022** - https://upnext.com.au/event/tia-marias-two-of-a-kind-party-brings-double-the-fun-2022
+
+**100 Climate Conversations: Anna Skarbek 2022** - https://upnext.com.au/event/100-climate-conversations-anna-skarbek-2022
+
+**Afro Peruvian Jazz 2022** - https://upnext.com.au/event/afro-peruvian-jazz-2022
+
+**Afro-Cuban Percussion & Dance: A Cultural Connection 2022** - https://upnext.com.au/event/afro-cuban-percussion-and-dance-a-cultural-connection-2022
+
+**Angus Nivison: Wrath 2022** - https://upnext.com.au/event/angus-nivison-wrath-2022
+
+**Big Jazz Eve at Glebe 2022** - https://upnext.com.au/event/big-jazz-eve-at-glebe-2022
+
+**Children's paper cutting workshop 2022** - https://upnext.com.au/event/childrens-paper-cutting-workshop-2022
+
+**Feast by Primrose Park Art and Craft Centre 2022** - https://upnext.com.au/event/feast-by-primrose-park-art-and-craft-centre-2022
+
+**Festival of Upcycling: MakerSpace & Co 2022** - https://upnext.com.au/event/festival-of-upcycling-makerspace-and-co-2022
+
+**Handcrafted - Rethink, reuse, recycle 2022** - https://upnext.com.au/event/handcrafted-rethink-reuse-recycle-2022
+
+**Hope 2022** - https://upnext.com.au/event/hope-2022
+
+**In-Soul/Sole: Climate Emergency Demands an Artist's Go-Slow 2022** - https://upnext.com.au/event/in-soul-sole-climate-emergency-demands-an-artists-go-slow-2022
+
+**Inside The Groove 2022** - https://upnext.com.au/event/inside-the-groove-2022
+
+**Journey to Japan 2022** - https://upnext.com.au/event/journey-to-japan-2022
+
+**Latin Percussion Workshop 2022** - https://upnext.com.au/event/latin-percussion-workshop-2022
+
+**Little Moons ice cream van at Bondi Beach 2022** - https://upnext.com.au/event/little-moons-ice-cream-van-at-bondi-beach-2022
+
+**Make a human torso with clay at home 2022** - https://upnext.com.au/event/make-a-human-torso-with-clay-at-home-2022
+
+**Making It Right 2022** - https://upnext.com.au/event/making-it-right-2022
+
+**mmm Studio Opening 2022** - https://upnext.com.au/event/mmm-studio-opening-2022
+
+**Open studio and workshops at Feltwilde Studio 2022** - https://upnext.com.au/event/open-studio-and-workshops-at-feltwilde-studio-2022
+
+**Open Studio at Makers Loft Creative Space 2022** - https://upnext.com.au/event/open-studio-at-makers-loft-creative-space-2022
+
+**Seed Stitch Contemporary Textile Award 2022** - https://upnext.com.au/event/seed-stitch-contemporary-textile-award-2022
+
+**Spring In The Atelier 2022** - https://upnext.com.au/event/spring-in-the-atelier-2022
+
+**Textiles studio tour by Inner West Council, Living Arts 2022** - https://upnext.com.au/event/textiles-studio-tour-by-inner-west-council-living-arts-2022
+
+**The Blind Eye Trilogy - Sydney 2022** - https://upnext.com.au/event/the-blind-eye-trilogy-sydney-2022
+
+**The Box Show 2022** - https://upnext.com.au/event/the-box-show-2022
+
+**There Is No Planet B 2022** - https://upnext.com.au/event/there-is-no-planet-b-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
