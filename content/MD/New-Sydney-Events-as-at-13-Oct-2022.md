@@ -1,0 +1,94 @@
+# New Sydney Events as at 13 Oct 2022
+New Sydney Events as at 13 Oct 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Sydney Shimmer Festival 2022** - https://upnext.com.au/event/sydney-shimmer-festival-2022
+
+**The ABC's of the intergenerational workforce 2022** - https://upnext.com.au/event/the-abcs-of-the-intergenerational-workforce-2022
+
+**The Demon 2022** - https://upnext.com.au/event/the-demon-2022
+
+**The Mist That Follows Rain | Exhibition | Graham Marchant 2022** - https://upnext.com.au/event/the-mist-that-follows-rain-exhibition-graham-marchant-2022
+
+**The Night of The 12th - Opening night gala 2022** - https://upnext.com.au/event/the-night-of-the-12th-opening-night-gala-2022
+
+**Thursdays at the Happy Endings Comedy Club 2022** - https://upnext.com.au/event/thursdays-at-the-happy-endings-comedy-club-2022
+
+**Whisky & Cheese Masterclass 2022** - https://upnext.com.au/event/whisky-and-cheese-masterclass-2022
+
+**Would you like to play cards? 2022** - https://upnext.com.au/event/would-you-like-to-play-cards-2022
+
+**Jewellery artist exhibition sale 2022** - https://upnext.com.au/event/jewellery-artist-exhibition-sale-2022
+
+**Antenna Documentary Film Festival 2022** - https://upnext.com.au/event/antenna-documentary-film-festival-2022
+
+**4A x DSDA Dance Battle: 2v2 Open Styles 2022** - https://upnext.com.au/event/4a-x-dsda-dance-battle-2v2-open-styles-2022
+
+**Darling Dance Sessions 2022** - https://upnext.com.au/event/darling-dance-sessions-2022
+
+**100 Climate Conversations: Karin Stark 2022** - https://upnext.com.au/event/100-climate-conversations-karin-stark-2022
+
+**Avenue Q The Musical 2022** - https://upnext.com.au/event/avenue-q-the-musical-2022
+
+**Band OMBE (Latin Afro-Uruguayan Show) 2022** - https://upnext.com.au/event/band-ombe-latin-afro-uruguayan-show-2022
+
+**Bingo Balls with Prada Clutch 2022** - https://upnext.com.au/event/bingo-balls-with-prada-clutch-2022
+
+**Cocktail Hour with Freyja Garbett 2022** - https://upnext.com.au/event/cocktail-hour-with-freyja-garbett-2022
+
+**Decision to Leave - Preview screening 2022** - https://upnext.com.au/event/decision-to-leave-preview-screening-2022
+
+**Duck & Pinot Noir: A match made in heaven 2022** - https://upnext.com.au/event/duck-and-pinot-noir-a-match-made-in-heaven-2022
+
+**Flashback Fridays - 90s & 2000s Party Sydney 2022** - https://upnext.com.au/event/flashback-fridays-90s-and-2000s-party-sydney-2022
+
+**Free Ben & Jerry's ice cream for a signature 2022** - https://upnext.com.au/event/free-ben-and-jerrys-ice-cream-for-a-signature-2022
+
+**Fright Night Preview - Barbarian 2022** - https://upnext.com.au/event/fright-night-preview-barbarian-2022
+
+**Godspell 2022** - https://upnext.com.au/event/godspell-2022
+
+**Mike Nock presents "SPRINGBOARD" 2022** - https://upnext.com.au/event/mike-nock-presents-springboard-2022
+
+**Modern Block Printing: Book Launch with Rowan Sivyer 2022** - https://upnext.com.au/event/modern-block-printing-book-launch-with-rowan-sivyer-2022
+
+**Musical stimulation during pregnancy 2022** - https://upnext.com.au/event/musical-stimulation-during-pregnancy-2022
+
+**Nectr at Sydney Home Show - Future-proof your energy needs 2022** - https://upnext.com.au/event/nectr-at-sydney-home-show-future-proof-your-energy-needs-2022
+
+**NSW Plastic Free solutions showcase 2022** - https://upnext.com.au/event/nsw-plastic-free-solutions-showcase-2022
+
+**Of stars and streetlights 2022** - https://upnext.com.au/event/of-stars-and-streetlights-2022
+
+**Super Spreader 2022** - https://upnext.com.au/event/super-spreader-2022
+
+**Teen Acting Classes: New York Style Acting Studio in Sydney 2022** - https://upnext.com.au/event/teen-acting-classes-new-york-style-acting-studio-in-sydney-2022
+
+**The East Sydney Fashion Feast 2022** - https://upnext.com.au/event/the-east-sydney-fashion-feast-2022
+
+**Sydney Streets on Stanley Street 2022** - https://upnext.com.au/event/sydney-streets-on-stanley-street-2022
+
+**Word Travel's Story Week 2022** - https://upnext.com.au/event/word-travels-story-week-2022
+
+**Australian Finska Championship 2022** - https://upnext.com.au/event/australian-finska-championship-2022
+
+**Australian Poetry Slam - Sydney Final 2022** - https://upnext.com.au/event/australian-poetry-slam-sydney-final-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
