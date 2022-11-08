@@ -1,0 +1,102 @@
+# New Sydney Events as at 08 Nov 2022
+New Sydney Events as at 08 Nov 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**A Taste of Italia at Jackalberry Bar 2022** - https://upnext.com.au/event/a-taste-of-italia-at-jackalberry-bar-2022
+
+**An Indigenous Voice? 2022** - https://upnext.com.au/event/an-indigenous-voice-2022
+
+**Arja Valimaki: Tropical Ocean 2022** - https://upnext.com.au/event/arja-valimaki-tropical-ocean-2022
+
+**Do Ho Suh: Museum of Contemporary Art Australia 2022** - https://upnext.com.au/event/do-ho-suh-museum-of-contemporary-art-australia-2022
+
+**Exhibition opening: Homage to chicks by Sophie Howarth 2022** - https://upnext.com.au/event/exhibition-opening-homage-to-chicks-by-sophie-howarth-2022
+
+**Head On Photo Festival 2022 at Bondi Beach** - https://upnext.com.au/event/head-on-photo-festival-2022-at-bondi-beach
+
+**Head On Photo Festival 2022 at Paddington Reservoir Gardens** - https://upnext.com.au/event/head-on-photo-festival-2022-at-paddington-reservoir-gardens
+
+**Learn to read music and sing 2022** - https://upnext.com.au/event/learn-to-read-music-and-sing-2022
+
+**Louis Vuitton presents SEE LV Sydney 2022** - https://upnext.com.au/event/louis-vuitton-presents-see-lv-sydney-2022
+
+**Maker Time: for families 2022** - https://upnext.com.au/event/maker-time-for-families-2022
+
+**Moulin Scrooge 2022** - https://upnext.com.au/event/moulin-scrooge-2022
+
+**Ocean & Earth by Ken Knight 2022** - https://upnext.com.au/event/ocean-and-earth-by-ken-knight-2022
+
+**Primavera 2022: Young Australian Artists** - https://upnext.com.au/event/primavera-2022-young-australian-artists
+
+**Singing the Blues 2022** - https://upnext.com.au/event/singing-the-blues-2022
+
+**Speaker Series: Comic Con-versation - Read to Me 2022** - https://upnext.com.au/event/speaker-series-comic-con-versation-read-to-me-2022
+
+**The Happiest Hours at The Butler 2022** - https://upnext.com.au/event/the-happiest-hours-at-the-butler-2022
+
+**Ways to save: Rebates and vouchers for older people 2022** - https://upnext.com.au/event/ways-to-save-rebates-and-vouchers-for-older-people-2022
+
+**Dungeons & Dragons after school activity 2022** - https://upnext.com.au/event/dungeons-and-dragons-after-school-activity-2022
+
+**Recycling masterclass: online information session 2022** - https://upnext.com.au/event/recycling-masterclass-online-information-session-2022
+
+**Beautiful Tomorrow 2022** - https://upnext.com.au/event/beautiful-tomorrow-2022
+
+**Blacklisted 2022** - https://upnext.com.au/event/blacklisted-2022
+
+**Experimenta 2022** - https://upnext.com.au/event/experimenta-2022
+
+**GAG: A queer comedy cabaret 2022** - https://upnext.com.au/event/gag-a-queer-comedy-cabaret-2022
+
+**International Student Ambassador (ISLA) 23/24 info sessions 2022** - https://upnext.com.au/event/international-student-ambassador-isla-23-24-info-sessions-2022
+
+**Intl. Games Month: Stylise your Stuff (Ages 8-11) 2022** - https://upnext.com.au/event/intl-games-month-stylise-your-stuff-ages-8-11-2022
+
+**On The Line - Club Dendy Preview 2022** - https://upnext.com.au/event/on-the-line-club-dendy-preview-2022
+
+**Our Will to Live: Terezin Music Critiques of Viktor Ullmann 2022** - https://upnext.com.au/event/our-will-to-live-terezin-music-critiques-of-viktor-ullmann-2022
+
+**Vertical Life Film Tour 3 - Sydney (Chauvel) 2022** - https://upnext.com.au/event/vertical-life-film-tour-3-sydney-chauvel-2022
+
+**Vertical Life Film Tour 3 - Sydney East 2022** - https://upnext.com.au/event/vertical-life-film-tour-3-sydney-east-2022
+
+**Wakanda Forever - Preview Screenings 2022** - https://upnext.com.au/event/wakanda-forever-preview-screenings-2022
+
+**99 Not Out! Edith Cowlishaw 2022** - https://upnext.com.au/event/99-not-out-edith-cowlishaw-2022
+
+**Beyond recycling: online information session 2022** - https://upnext.com.au/event/beyond-recycling-online-information-session-2022
+
+**Byron & Pace Live Show 2022** - https://upnext.com.au/event/byron-and-pace-live-show-2022
+
+**Heather Rose in conversation with Kate Evans 2022** - https://upnext.com.au/event/heather-rose-in-conversation-with-kate-evans-2022
+
+**Inner-West matched speed dating ages 39-49 2022** - https://upnext.com.au/event/inner-west-matched-speed-dating-ages-39-49-2022
+
+**Jasmin Sheppard 2022** - https://upnext.com.au/event/jasmin-sheppard-2022
+
+**Kyoshi | Phoenix Central Park 2022** - https://upnext.com.au/event/kyoshi-phoenix-central-park-2022
+
+**Lightfall | Solo Exhibition | Kerwayne Berry 2022** - https://upnext.com.au/event/lightfall-solo-exhibition-kerwayne-berry-2022
+
+**Pine Street Printmakers exhibition 2022** - https://upnext.com.au/event/pine-street-printmakers-exhibition-2022
+
+**Powerhouse Late: FBI SMAC Awards 2022** - https://upnext.com.au/event/powerhouse-late-fbi-smac-awards-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
