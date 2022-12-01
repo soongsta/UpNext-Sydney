@@ -1,0 +1,102 @@
+# New Sydney Events as at 01 Dec 2022
+New Sydney Events as at 01 Dec 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Feel Like A Legend With Dylan Alcott At Madame Tussauds Syd 2022** - https://upnext.com.au/event/feel-like-a-legend-with-dylan-alcott-at-madame-tussauds-syd-2022
+
+**Funk Sydney's 2nd Birthday Party : Funk You Up 2022** - https://upnext.com.au/event/funk-sydneys-2nd-birthday-party-funk-you-up-2022
+
+**Great Guitars - Guy Strazz & Mark Johns + Chris Fields 2022** - https://upnext.com.au/event/great-guitars-guy-strazz-and-mark-johns-chris-fields-2022
+
+**Great Guitars: Guy Strazz & Mark Johns 2022** - https://upnext.com.au/event/great-guitars-guy-strazz-and-mark-johns-2022
+
+**Luanne Mitchelmore exhibition 2022** - https://upnext.com.au/event/luanne-mitchelmore-exhibition-2022
+
+**Martin Place Christmas Markets 2022** - https://upnext.com.au/event/martin-place-christmas-markets-2022
+
+**Mingle with the Melons 2022** - https://upnext.com.au/event/mingle-with-the-melons-2022
+
+**MOD CON | Phoenix Central Park 2022** - https://upnext.com.au/event/mod-con-phoenix-central-park-2022
+
+**Nauti Studios Night Market, Stanmore 2022** - https://upnext.com.au/event/nauti-studios-night-market-stanmore-2022
+
+**Photographic exhibition: Major General Arthur 'Tubby' Allen 2022** - https://upnext.com.au/event/photographic-exhibition-major-general-arthur-tubby-allen-2022
+
+**Photos with Santa at David Jones 2022** - https://upnext.com.au/event/photos-with-santa-at-david-jones-2022
+
+**Pinchgut Opera presents Medee by Charpentier 2022** - https://upnext.com.au/event/pinchgut-opera-presents-medee-by-charpentier-2022
+
+**Powerhouse Late: EMC 2022** - https://upnext.com.au/event/powerhouse-late-emc-2022
+
+**RISE3: Mangrove Thinking 2022** - https://upnext.com.au/event/rise3-mangrove-thinking-2022
+
+**South Eveleigh Artist Markets 2022** - https://upnext.com.au/event/south-eveleigh-artist-markets-2022
+
+**Symbiosis: underwater photography exhibition 2022** - https://upnext.com.au/event/symbiosis-underwater-photography-exhibition-2022
+
+**The Banshees of Inisherin 2022** - https://upnext.com.au/event/the-banshees-of-inisherin-2022
+
+**The Georgie Collective Christmas Connections 2022** - https://upnext.com.au/event/the-georgie-collective-christmas-connections-2022
+
+**Watch how Jewellery is created at Anania Family Jewellers 2022** - https://upnext.com.au/event/watch-how-jewellery-is-created-at-anania-family-jewellers-2022
+
+**Activate inclusion sports day 2022** - https://upnext.com.au/event/activate-inclusion-sports-day-2022
+
+**Seniors Christmas reception 2022** - https://upnext.com.au/event/seniors-christmas-reception-2022
+
+**IDPwD Junior rugby league clinic 2022** - https://upnext.com.au/event/idpwd-junior-rugby-league-clinic-2022
+
+**Pyrmont Christmas Concert 2022** - https://upnext.com.au/event/pyrmont-christmas-concert-2022
+
+**100 Climate Conversations: Simon Holmes a Court 2022** - https://upnext.com.au/event/100-climate-conversations-simon-holmes-a-court-2022
+
+**3 Untapped Marketing Strategies For eCommerce Stores 2022** - https://upnext.com.au/event/3-untapped-marketing-strategies-for-ecommerce-stores-2022
+
+**Chianti & Chianti Classico Masterclass 2022** - https://upnext.com.au/event/chianti-and-chianti-classico-masterclass-2022
+
+**Open For Lunch 2022** - https://upnext.com.au/event/open-for-lunch-2022
+
+**Opera meets Qur'an 2022** - https://upnext.com.au/event/opera-meets-quran-2022
+
+**Saferoom 043: Kintsugi, Peptalk + Mredrollo 2022** - https://upnext.com.au/event/saferoom-043-kintsugi-peptalk-mredrollo-2022
+
+**The Funniest Comedians You've Never Heard Of 2022** - https://upnext.com.au/event/the-funniest-comedians-youve-never-heard-of-2022
+
+**The Rocks Christmas Markets 2022** - https://upnext.com.au/event/the-rocks-christmas-markets-2022
+
+**Tinseltown 2022** - https://upnext.com.au/event/tinseltown-2022
+
+**Vigil for the Smooth Handfish 2022** - https://upnext.com.au/event/vigil-for-the-smooth-handfish-2022
+
+**YCK Laneways Presents: YCK Fair 2022** - https://upnext.com.au/event/yck-laneways-presents-yck-fair-2022
+
+**Green Square Christmas Fair 2022** - https://upnext.com.au/event/green-square-christmas-fair-2022
+
+**Sydney Children's Christmas Concert 2022** - https://upnext.com.au/event/sydney-childrens-christmas-concert-2022
+
+**IDPwD at Victoria Park Pool 2022** - https://upnext.com.au/event/idpwd-at-victoria-park-pool-2022
+
+**IDPwD @ KGV Recreation Centre 2022** - https://upnext.com.au/event/idpwd-kgv-recreation-centre-2022
+
+**IDPwD at Andrew (Boy) Charlton Pool 2022** - https://upnext.com.au/event/idpwd-at-andrew-boy-charlton-pool-2022
+
+**IDPwD at Cook+Phillip Park Pool 2022** - https://upnext.com.au/event/idpwd-at-cookphillip-park-pool-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
