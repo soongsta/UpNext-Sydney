@@ -1,0 +1,102 @@
+# New Sydney Events as at 05 Dec 2022
+New Sydney Events as at 05 Dec 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Alchemical Worlds: Reflections 2022** - https://upnext.com.au/event/alchemical-worlds-reflections-2022
+
+**Amplify Access and Achieve Purposeful Profit Program 2022** - https://upnext.com.au/event/amplify-access-and-achieve-purposeful-profit-program-2022
+
+**Champainting Paint and Sip Sessions at Crows Nest 2022** - https://upnext.com.au/event/champainting-paint-and-sip-sessions-at-crows-nest-2022
+
+**Code Camp School Holiday Programs 2022** - https://upnext.com.au/event/code-camp-school-holiday-programs-2022
+
+**Jon Setter: Visual Ligatures 2022** - https://upnext.com.au/event/jon-setter-visual-ligatures-2022
+
+**Opening celebrations: AGNSW's stunning new building 2022** - https://upnext.com.au/event/opening-celebrations-agnsws-stunning-new-building-2022
+
+**Polish Books | State Library Multicultural Collection 2022** - https://upnext.com.au/event/polish-books-state-library-multicultural-collection-2022
+
+**QT's Return to the Dirt (Free Online Screening) 2022** - https://upnext.com.au/event/qts-return-to-the-dirt-free-online-screening-2022
+
+**Queer Literature Book Club with Sam Coley 2022** - https://upnext.com.au/event/queer-literature-book-club-with-sam-coley-2022
+
+**Territorian Exhibition by Lara Scolari 2022** - https://upnext.com.au/event/territorian-exhibition-by-lara-scolari-2022
+
+**Morning tea end of year celebration in Pyrmont 2022** - https://upnext.com.au/event/morning-tea-end-of-year-celebration-in-pyrmont-2022
+
+**Andrea Lam | Phoenix Central Park 2022** - https://upnext.com.au/event/andrea-lam-phoenix-central-park-2022
+
+**Beyond design as usual 2022** - https://upnext.com.au/event/beyond-design-as-usual-2022
+
+**Ecological guilt and reproductive activism 2022** - https://upnext.com.au/event/ecological-guilt-and-reproductive-activism-2022
+
+**M'ap Boule 2022** - https://upnext.com.au/event/map-boule-2022
+
+**New feels, new forms: art, play and ecological emotion 2022** - https://upnext.com.au/event/new-feels-new-forms-art-play-and-ecological-emotion-2022
+
+**Sharon Candy: Under the Canopy of Stars 2022** - https://upnext.com.au/event/sharon-candy-under-the-canopy-of-stars-2022
+
+**Social media self-defence for LGBTQ+ participants 2022** - https://upnext.com.au/event/social-media-self-defence-for-lgbtq-participants-2022
+
+**Speed dating for ages 38-50 2022** - https://upnext.com.au/event/speed-dating-for-ages-38-50-2022
+
+**Spowers & Syme 2022** - https://upnext.com.au/event/spowers-and-syme-2022
+
+**We will tell our own Stories: Story Holder Workshop 2022** - https://upnext.com.au/event/we-will-tell-our-own-stories-story-holder-workshop-2022
+
+**Ron Williams Community Centre end of year celebration 2022** - https://upnext.com.au/event/ron-williams-community-centre-end-of-year-celebration-2022
+
+**Cliff Noble Community Centre end of year celebration 2022** - https://upnext.com.au/event/cliff-noble-community-centre-end-of-year-celebration-2022
+
+**Senior welfare information session 2022** - https://upnext.com.au/event/senior-welfare-information-session-2022
+
+**3:Three 2022** - https://upnext.com.au/event/3-three-2022
+
+**50 years of Australia-China relations: Views from the envoys 2022** - https://upnext.com.au/event/50-years-of-australia-china-relations-views-from-the-envoys-2022
+
+**CAKE at Meraki Arts Bar 2022** - https://upnext.com.au/event/cake-at-meraki-arts-bar-2022
+
+**Fair Trade Christmas Shopping Night 2022** - https://upnext.com.au/event/fair-trade-christmas-shopping-night-2022
+
+**Fuse Talks: Diversity in Architecture 2022** - https://upnext.com.au/event/fuse-talks-diversity-in-architecture-2022
+
+**Handmade Christmas cards (8-12 years) 2022** - https://upnext.com.au/event/handmade-christmas-cards-8-12-years-2022
+
+**Happy Sad Man - Q&A Screening 2022** - https://upnext.com.au/event/happy-sad-man-q-and-a-screening-2022
+
+**Japanese Film Festival 2022** - https://upnext.com.au/event/japanese-film-festival-2022
+
+**Katharine Murphy in conversation with David Marr 2022** - https://upnext.com.au/event/katharine-murphy-in-conversation-with-david-marr-2022
+
+**Live at the Great: Klezmer, Cantor and chutzpah 2022** - https://upnext.com.au/event/live-at-the-great-klezmer-cantor-and-chutzpah-2022
+
+**Ship's Cat Theatre Co. presents The Woman and the Car 2022** - https://upnext.com.au/event/ships-cat-theatre-co-presents-the-woman-and-the-car-2022
+
+**The Torrent by Dinuka McKenzie with Michelle Barraclough 2022** - https://upnext.com.au/event/the-torrent-by-dinuka-mckenzie-with-michelle-barraclough-2022
+
+**Triangle of Sadness - Club Dendy Preview 2022** - https://upnext.com.au/event/triangle-of-sadness-club-dendy-preview-2022
+
+**Twilight bites: Sharks, protection and detection 2022** - https://upnext.com.au/event/twilight-bites-sharks-protection-and-detection-2022
+
+**Christmas at the Cathedral 2022** - https://upnext.com.au/event/christmas-at-the-cathedral-2022
+
+**Effy Alexakis: Survey 2022** - https://upnext.com.au/event/effy-alexakis-survey-2022
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
