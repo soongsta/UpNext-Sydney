@@ -1,0 +1,102 @@
+# New Sydney Events as at 28 Dec 2022
+New Sydney Events as at 28 Dec 2022 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Dive Below The Surface This Summer at SEA LIFE Sydney 2022** - https://upnext.com.au/event/dive-below-the-surface-this-summer-at-sea-life-sydney-2022
+
+**Group exhibition: A Thread Through Time 2022** - https://upnext.com.au/event/group-exhibition-a-thread-through-time-2022
+
+**Group exhibition: Folk Tales 2022** - https://upnext.com.au/event/group-exhibition-folk-tales-2022
+
+**Language & Culture Networking 2022** - https://upnext.com.au/event/language-and-culture-networking-2022
+
+**PolArt Sydney2022** - https://upnext.com.au/event/polart-sydney2022
+
+**Shipwreck odyssey 2022** - https://upnext.com.au/event/shipwreck-odyssey-2022
+
+**Solo exhibition: Polak Diaspora Series 2022** - https://upnext.com.au/event/solo-exhibition-polak-diaspora-series-2022
+
+**Summer of Crocs at WILD LIFE Sydney Zoo 2022** - https://upnext.com.au/event/summer-of-crocs-at-wild-life-sydney-zoo-2022
+
+**Summer school holidays at the Maritime Museum 2022** - https://upnext.com.au/event/summer-school-holidays-at-the-maritime-museum-2022
+
+**The Laugh Inn Comedy Club 2022** - https://upnext.com.au/event/the-laugh-inn-comedy-club-2022
+
+**""Pucio" the Polish Literary Sensation | Author's Talk 2022"** - https://upnext.com.au/event/pucio-the-polish-literary-sensation-authors-talk-2022
+
+**Barbera Wine Tasting 2022** - https://upnext.com.au/event/barbera-wine-tasting-2022
+
+**Golden Age of Polish Baroque 2022** - https://upnext.com.au/event/golden-age-of-polish-baroque-2022
+
+**Jablko (Apple) | Scena '98 2022** - https://upnext.com.au/event/jablko-apple-scena-98-2022
+
+**YouthFest PolArt Sydney 2022** - https://upnext.com.au/event/youthfest-polart-sydney-2022
+
+**Wieczor z poezja (Poetry Evening) 2022** - https://upnext.com.au/event/wieczor-z-poezja-poetry-evening-2022
+
+**Dwie Poetki: Jedna Dusza (2 Poets: 1 Soul) | Poetry Recital 2022** - https://upnext.com.au/event/dwie-poetki-jedna-dusza-2-poets-1-soul-poetry-recital-2022
+
+**Exploring Your Polish Ancestry in Australia 2022** - https://upnext.com.au/event/exploring-your-polish-ancestry-in-australia-2022
+
+**Horizon Club New Year's Eve celebration 2022** - https://upnext.com.au/event/horizon-club-new-years-eve-celebration-2022
+
+**White Party 2022** - https://upnext.com.au/event/white-party-2022
+
+**NYE Garden Party in the Royal Botanic Garden 2022** - https://upnext.com.au/event/nye-garden-party-in-the-royal-botanic-garden-2022
+
+**A Family-Friendly New Year's Eve at Bradleys Head 2022** - https://upnext.com.au/event/a-family-friendly-new-years-eve-at-bradleys-head-2022
+
+**A Grand New Year's Eve Dinner at Feast 2022** - https://upnext.com.au/event/a-grand-new-years-eve-dinner-at-feast-2022
+
+**A Hidden Gem: New Year's Eve at Strickland Estate 2022** - https://upnext.com.au/event/a-hidden-gem-new-years-eve-at-strickland-estate-2022
+
+**All inclusive Sydney Harbour New Years Eve Cruise 2022** - https://upnext.com.au/event/all-inclusive-sydney-harbour-new-years-eve-cruise-2022
+
+**Amadeus on New Year's Eve at the Sydney Opera House 2022** - https://upnext.com.au/event/amadeus-on-new-years-eve-at-the-sydney-opera-house-2022
+
+**Bar Ombre presents NYE 2022** - https://upnext.com.au/event/bar-ombre-presents-nye-2022
+
+**Bella Vista - Sydney New Year's Eve Cruise 2022** - https://upnext.com.au/event/bella-vista-sydney-new-years-eve-cruise-2022
+
+**Celebrate New Year's Eve at Jordon's 2022** - https://upnext.com.au/event/celebrate-new-years-eve-at-jordons-2022
+
+**Clark Island New Year's Eve 2022** - https://upnext.com.au/event/clark-island-new-years-eve-2022
+
+**Darling Harbour New Year's Eve 2022** - https://upnext.com.au/event/darling-harbour-new-years-eve-2022
+
+**Empire of Light: New Year's Eve preview 2022** - https://upnext.com.au/event/empire-of-light-new-years-eve-preview-2022
+
+**Golden Lotus NYE Party 2022** - https://upnext.com.au/event/golden-lotus-nye-party-2022
+
+**Harbour Party at Luna Park 2022** - https://upnext.com.au/event/harbour-party-at-luna-park-2022
+
+**How to Search for My Polish Heritage 2022** - https://upnext.com.au/event/how-to-search-for-my-polish-heritage-2022
+
+**James Craig New Year's Eve Cruise 2022** - https://upnext.com.au/event/james-craig-new-years-eve-cruise-2022
+
+**MCA Sculpture Terrace: Celebration NYE 22/23 2022** - https://upnext.com.au/event/mca-sculpture-terrace-celebration-nye-22-23-2022
+
+**Midnight at the Oasis 2022** - https://upnext.com.au/event/midnight-at-the-oasis-2022
+
+**Mrs Macquaries Point - NYE 2022** - https://upnext.com.au/event/mrs-macquaries-point-nye-2022
+
+**New Year's Eve 2022 at Cruise Bar** - https://upnext.com.au/event/new-years-eve-2022-at-cruise-bar
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
