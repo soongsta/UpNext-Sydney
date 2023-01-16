@@ -1,0 +1,102 @@
+# New Sydney Events as at 16 Jan 2023
+New Sydney Events as at 16 Jan 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Celebrate Lunar New Year with East Village 2023** - https://upnext.com.au/event/celebrate-lunar-new-year-with-east-village-2023
+
+**Magnifique Summer cocktails at Sofitel Sydney Wentworth 2023** - https://upnext.com.au/event/magnifique-summer-cocktails-at-sofitel-sydney-wentworth-2023
+
+**Summerific 23 2023** - https://upnext.com.au/event/summerific-23-2023
+
+**Sydney Youth Orchestras HSC Summer School 2023** - https://upnext.com.au/event/sydney-youth-orchestras-hsc-summer-school-2023
+
+**Sydney Youth Orchestras Summer School 2023** - https://upnext.com.au/event/sydney-youth-orchestras-summer-school-2023
+
+**The Weaving Room 2023** - https://upnext.com.au/event/the-weaving-room-2023
+
+**Write around the Library 2023** - https://upnext.com.au/event/write-around-the-library-2023
+
+**Andrew Dickeson's 'The Future Today' 2023** - https://upnext.com.au/event/andrew-dickesons-the-future-today-2023
+
+**Drawing workshop with Matthew Lin 2023** - https://upnext.com.au/event/drawing-workshop-with-matthew-lin-2023
+
+**Unity Coding (Ages 9 - 12) 2023** - https://upnext.com.au/event/unity-coding-ages-9-12-2023
+
+**Babylon: Golden Age preview 2023** - https://upnext.com.au/event/babylon-golden-age-preview-2023
+
+**Book quiz 2023** - https://upnext.com.au/event/book-quiz-2023
+
+**Champainting Paint and Sip - High on Lavender 2023** - https://upnext.com.au/event/champainting-paint-and-sip-high-on-lavender-2023
+
+**Champainting Paint and Sip - Paradise 2023** - https://upnext.com.au/event/champainting-paint-and-sip-paradise-2023
+
+**Fairy collage workshop 2023** - https://upnext.com.au/event/fairy-collage-workshop-2023
+
+**Free guided Highlights tour: Anzac Memorial 2023** - https://upnext.com.au/event/free-guided-highlights-tour-anzac-memorial-2023
+
+**Glenfiddich x Eleven Madison Park pop-up at Maybe Sammy 2023** - https://upnext.com.au/event/glenfiddich-x-eleven-madison-park-pop-up-at-maybe-sammy-2023
+
+**Hawaiian Luau 2023** - https://upnext.com.au/event/hawaiian-luau-2023
+
+**Inner edge drifting 2023** - https://upnext.com.au/event/inner-edge-drifting-2023
+
+**Interstices - navigating space and interspace 2023** - https://upnext.com.au/event/interstices-navigating-space-and-interspace-2023
+
+**Year of the Rabbit Festival Chatswood 2023** - https://upnext.com.au/event/year-of-the-rabbit-festival-chatswood-2023
+
+**""The Human form Exhibition" 2023"** - https://upnext.com.au/event/the-human-form-exhibition-2023
+
+**A Wealth of Blooms: a solo exhibition by Valerie Khoo 2023** - https://upnext.com.au/event/a-wealth-of-blooms-a-solo-exhibition-by-valerie-khoo-2023
+
+**Beauty and the Beast cocktail experience 2023** - https://upnext.com.au/event/beauty-and-the-beast-cocktail-experience-2023
+
+**Cardboard Caravan Creations 2023** - https://upnext.com.au/event/cardboard-caravan-creations-2023
+
+**Champainting Paint and Sip - Prickly Pear 2023** - https://upnext.com.au/event/champainting-paint-and-sip-prickly-pear-2023
+
+**Champainting Paint and Sip - Summer Citrus 2023** - https://upnext.com.au/event/champainting-paint-and-sip-summer-citrus-2023
+
+**City of Sydney Online Book Club : Holiday Reads 2023** - https://upnext.com.au/event/city-of-sydney-online-book-club-holiday-reads-2023
+
+**Comedy untamed 2023** - https://upnext.com.au/event/comedy-untamed-2023
+
+**David Jones Chinese Lunar New Year celebrations 2023** - https://upnext.com.au/event/david-jones-chinese-lunar-new-year-celebrations-2023
+
+**Exhibition: My Country - Netta Loogatha Birrmuyingathi Maali 2023** - https://upnext.com.au/event/exhibition-my-country-netta-loogatha-birrmuyingathi-maali-2023
+
+**Gong Grocer: Lunar New Year Gift Shop & Snack Bar @ DSQ 2023** - https://upnext.com.au/event/gong-grocer-lunar-new-year-gift-shop-and-snack-bar-dsq-2023
+
+**Luna New Year dining experience at IKEA 2023** - https://upnext.com.au/event/luna-new-year-dining-experience-at-ikea-2023
+
+**Online pattern making course: Patterns Unpicked 2023** - https://upnext.com.au/event/online-pattern-making-course-patterns-unpicked-2023
+
+**Seymour Nights @ Sydney Festival - Jack Shit 2023** - https://upnext.com.au/event/seymour-nights-sydney-festival-jack-shit-2023
+
+**Stand-Up Comedy Cagefight 2023** - https://upnext.com.au/event/stand-up-comedy-cagefight-2023
+
+**Make your own laser cut flower press (12-15 years) 2023** - https://upnext.com.au/event/make-your-own-laser-cut-flower-press-12-15-years-2023
+
+**'Unicorn' ballet workshop 2023** - https://upnext.com.au/event/unicorn-ballet-workshop-2023
+
+**100 Climate Conversations: Matt Floro 2023** - https://upnext.com.au/event/100-climate-conversations-matt-floro-2023
+
+**2MBS Fine Music Book and CD Fair 2023** - https://upnext.com.au/event/2mbs-fine-music-book-and-cd-fair-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
