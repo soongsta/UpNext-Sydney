@@ -1,0 +1,102 @@
+# New Sydney Events as at 30 Jan 2023
+New Sydney Events as at 30 Jan 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**DIY aromatherapy candle and wax melts 2023** - https://upnext.com.au/event/diy-aromatherapy-candle-and-wax-melts-2023
+
+**Sculptural Forms in Clay - 9 week studio term 2023** - https://upnext.com.au/event/sculptural-forms-in-clay-9-week-studio-term-2023
+
+**Teen acting classes: New York style acting online via Zoom 2023** - https://upnext.com.au/event/teen-acting-classes-new-york-style-acting-online-via-zoom-2023
+
+**Workshop: start and run a small business 2023** - https://upnext.com.au/event/workshop-start-and-run-a-small-business-2023
+
+**Australian Taiko Academy: Tuesday Intermediate 2023** - https://upnext.com.au/event/australian-taiko-academy-tuesday-intermediate-2023
+
+**BIG W's Magical Mum Mixer 2023** - https://upnext.com.au/event/big-ws-magical-mum-mixer-2023
+
+**Date Night in Surry Hills, Ages 30-42 2023** - https://upnext.com.au/event/date-night-in-surry-hills-ages-30-42-2023
+
+**Lunchtime Zumba Gold Class 2023** - https://upnext.com.au/event/lunchtime-zumba-gold-class-2023
+
+**Nei Dan Yoga Classes 2023** - https://upnext.com.au/event/nei-dan-yoga-classes-2023
+
+**Tai chi 2023** - https://upnext.com.au/event/tai-chi-2023
+
+**Too Easy Comedy! Auslan interpreted comedy night 2023** - https://upnext.com.au/event/too-easy-comedy-auslan-interpreted-comedy-night-2023
+
+**Tour of Sentient Paper exhibition (Mandarin-language) 2023** - https://upnext.com.au/event/tour-of-sentient-paper-exhibition-mandarin-language-2023
+
+**Celebrate Lunar New Year with Eastern Standard Times 2023** - https://upnext.com.au/event/celebrate-lunar-new-year-with-eastern-standard-times-2023
+
+**Understanding Climate Change Forum 2023** - https://upnext.com.au/event/understanding-climate-change-forum-2023
+
+**Basketball workshops Glebe 2023** - https://upnext.com.au/event/basketball-workshops-glebe-2023
+
+**Champainting Paint and Sip - Rise Above 2023** - https://upnext.com.au/event/champainting-paint-and-sip-rise-above-2023
+
+**Chinese Opera costumes on display 2023** - https://upnext.com.au/event/chinese-opera-costumes-on-display-2023
+
+**Circle of Five 2023** - https://upnext.com.au/event/circle-of-five-2023
+
+**Dancing in Fetters 2023** - https://upnext.com.au/event/dancing-in-fetters-2023
+
+**DIY Organic Beauty Products 2023** - https://upnext.com.au/event/diy-organic-beauty-products-2023
+
+**English class for seniors 2023** - https://upnext.com.au/event/english-class-for-seniors-2023
+
+**Expert Talk with Professor Jan Grabowski 2023** - https://upnext.com.au/event/expert-talk-with-professor-jan-grabowski-2023
+
+**Notebook making workshop with Margaret 2023** - https://upnext.com.au/event/notebook-making-workshop-with-margaret-2023
+
+**One Woman Show 2023** - https://upnext.com.au/event/one-woman-show-2023
+
+**Screen acting classes 2023** - https://upnext.com.au/event/screen-acting-classes-2023
+
+**Seniors Festival 2023 at Andrew (Boy) Charlton Pool** - https://upnext.com.au/event/seniors-festival-2023-at-andrew-boy-charlton-pool
+
+**Seniors Festival 2023 at Cook+Phillip Park** - https://upnext.com.au/event/seniors-festival-2023-at-cookphillip-park
+
+**Seniors Festival 2023 at Gunyama Park Aquatic & Rec. Centre** - https://upnext.com.au/event/seniors-festival-2023-at-gunyama-park-aquatic-and-rec-centre
+
+**Seniors Festival 2023 at Ian Thorpe Aquatic Centre** - https://upnext.com.au/event/seniors-festival-2023-at-ian-thorpe-aquatic-centre
+
+**Seniors Festival 2023 at Prince Alfred Park Pool** - https://upnext.com.au/event/seniors-festival-2023-at-prince-alfred-park-pool
+
+**Seniors Festival 2023 at Victoria Park Pool** - https://upnext.com.au/event/seniors-festival-2023-at-victoria-park-pool
+
+**Seniors Festival Event at Ron Williams Centre 2023** - https://upnext.com.au/event/seniors-festival-event-at-ron-williams-centre-2023
+
+**Splash the Stigma 2023** - https://upnext.com.au/event/splash-the-stigma-2023
+
+**Sydney Is Beautiful public exhibition 2023** - https://upnext.com.au/event/sydney-is-beautiful-public-exhibition-2023
+
+**Lunar New Year Special K-Beauty Workshop 2023** - https://upnext.com.au/event/lunar-new-year-special-k-beauty-workshop-2023
+
+**Night of Ideas at the MCA 2023** - https://upnext.com.au/event/night-of-ideas-at-the-mca-2023
+
+**Rebels, not muses: the women artists of European modernism 2023** - https://upnext.com.au/event/rebels-not-muses-the-women-artists-of-european-modernism-2023
+
+**Ballet Class: Little Ballet 3-5 years (Tramsheds) 2023** - https://upnext.com.au/event/ballet-class-little-ballet-3-5-years-tramsheds-2023
+
+**Bree van Reyk & Mick Turner present 'Superclusters' 2023** - https://upnext.com.au/event/bree-van-reyk-and-mick-turner-present-superclusters-2023
+
+**CHUTNEY + Sarit Michael 2023** - https://upnext.com.au/event/chutney-sarit-michael-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
