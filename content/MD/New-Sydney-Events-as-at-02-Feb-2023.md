@@ -1,0 +1,80 @@
+# New Sydney Events as at 02 Feb 2023
+New Sydney Events as at 02 Feb 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Opening ceremony by Eduardo Wolfe-Alegria at Passage Gallery 2023** - https://upnext.com.au/event/opening-ceremony-by-eduardo-wolfe-alegria-at-passage-gallery-2023
+
+**107 Life Drawing 2023** - https://upnext.com.au/event/107-life-drawing-2023
+
+**History After Hours 2023** - https://upnext.com.au/event/history-after-hours-2023
+
+**100 Climate Conversations: Rowan Foley 2023** - https://upnext.com.au/event/100-climate-conversations-rowan-foley-2023
+
+**100 Climate Conversations: Vivian Tam 2023** - https://upnext.com.au/event/100-climate-conversations-vivian-tam-2023
+
+**A Leakage of Wholes (iterations) 2023** - https://upnext.com.au/event/a-leakage-of-wholes-iterations-2023
+
+**Auto Tune 2023** - https://upnext.com.au/event/auto-tune-2023
+
+**Bad movie club 2023** - https://upnext.com.au/event/bad-movie-club-2023
+
+**Champainting Paint and Sip - Mt Fuji 2023** - https://upnext.com.au/event/champainting-paint-and-sip-mt-fuji-2023
+
+**Conversion 2023** - https://upnext.com.au/event/conversion-2023
+
+**Firstdraft February - March Exhibition Openings 2023** - https://upnext.com.au/event/firstdraft-february-march-exhibition-openings-2023
+
+**Frances Madden (Friday show) 2023** - https://upnext.com.au/event/frances-madden-friday-show-2023
+
+**Fridays in Feb Lunch Special at NOLA Smokehouse & Bar 2023** - https://upnext.com.au/event/fridays-in-feb-lunch-special-at-nola-smokehouse-and-bar-2023
+
+**Haymarket Chamber of Commerce 2023 Chinese New Year Banquet** - https://upnext.com.au/event/haymarket-chamber-of-commerce-2023-chinese-new-year-banquet
+
+**Mousetrap theatre comedy night 2023** - https://upnext.com.au/event/mousetrap-theatre-comedy-night-2023
+
+**Pink Party 2023** - https://upnext.com.au/event/pink-party-2023
+
+**Pottery - Friday class 2023** - https://upnext.com.au/event/pottery-friday-class-2023
+
+**St Helen's Community Morning Tea 2023** - https://upnext.com.au/event/st-helens-community-morning-tea-2023
+
+**Teen Acting Classes: New York Style Acting Studio in Sydney 2023** - https://upnext.com.au/event/teen-acting-classes-new-york-style-acting-studio-in-sydney-2023
+
+**The Visible Invisible 2023** - https://upnext.com.au/event/the-visible-invisible-2023
+
+**Tour of Sentient Paper Exhibition (Cantonese-language) 2023** - https://upnext.com.au/event/tour-of-sentient-paper-exhibition-cantonese-language-2023
+
+**Your Sustainable Home 2023** - https://upnext.com.au/event/your-sustainable-home-2023
+
+**Flavours from the Fire: Mopoke Festival 2023** - https://upnext.com.au/event/flavours-from-the-fire-mopoke-festival-2023
+
+**Over 40's Singles Party 2023** - https://upnext.com.au/event/over-40s-singles-party-2023
+
+**2023 Flying Islands Books Launch** - https://upnext.com.au/event/2023-flying-islands-books-launch
+
+**Amazonite Lunar New Year Flash Mob 2023** - https://upnext.com.au/event/amazonite-lunar-new-year-flash-mob-2023
+
+**Art decoder and the migration story 2023** - https://upnext.com.au/event/art-decoder-and-the-migration-story-2023
+
+**Art fair & hands-on workshops at The Hyde Park Barracks 2023** - https://upnext.com.au/event/art-fair-and-hands-on-workshops-at-the-hyde-park-barracks-2023
+
+**Audio-described tour: Primavera 2022 | MCA Exhibition 2023** - https://upnext.com.au/event/audio-described-tour-primavera-2022-mca-exhibition-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
