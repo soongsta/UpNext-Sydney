@@ -1,0 +1,72 @@
+# New Sydney Events as at 27 Feb 2023
+New Sydney Events as at 27 Feb 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Full Teen Acting Scholarship - Term 2 2023 The Actors Pulse** - https://upnext.com.au/event/full-teen-acting-scholarship-term-2-2023-the-actors-pulse
+
+**Improv Comedy Cagefight CUP 2023** - https://upnext.com.au/event/improv-comedy-cagefight-cup-2023
+
+**Stoli Vodka's Martini Mayhem at Sheraton Grand Hyde Park 2023** - https://upnext.com.au/event/stoli-vodkas-martini-mayhem-at-sheraton-grand-hyde-park-2023
+
+**Ultimate Sydney Walking Tour - History, Laneways, Art & More 2023** - https://upnext.com.au/event/ultimate-sydney-walking-tour-history-laneways-art-and-more-2023
+
+**Wanting To See: A World Pride 2023 Group Showcase** - https://upnext.com.au/event/wanting-to-see-a-world-pride-2023-group-showcase
+
+**Comfort, Spin, Travel 2023** - https://upnext.com.au/event/comfort-spin-travel-2023
+
+**Feminazi 2023** - https://upnext.com.au/event/feminazi-2023
+
+**Meraki Takeover 2023** - https://upnext.com.au/event/meraki-takeover-2023
+
+**Online K-Pop Dance Flash Mob 2023** - https://upnext.com.au/event/online-k-pop-dance-flash-mob-2023
+
+**Social Group for Chinese speaking seniors 2023** - https://upnext.com.au/event/social-group-for-chinese-speaking-seniors-2023
+
+**Workshop 2023** - https://upnext.com.au/event/workshop-2023
+
+**Knitting is…experimental 2023** - https://upnext.com.au/event/knitting-isexperimental-2023
+
+**March Dance 2023** - https://upnext.com.au/event/march-dance-2023
+
+**March Walkies for The Lost Dogs' Home 2023** - https://upnext.com.au/event/march-walkies-for-the-lost-dogs-home-2023
+
+**Meat in March 2023** - https://upnext.com.au/event/meat-in-march-2023
+
+**Meat March: Sydney's First Smoked-Meats Festival 2023** - https://upnext.com.au/event/meat-march-sydneys-first-smoked-meats-festival-2023
+
+**Phresh Produce 2023** - https://upnext.com.au/event/phresh-produce-2023
+
+**Phresh Produce takes over Luna Studio 2023** - https://upnext.com.au/event/phresh-produce-takes-over-luna-studio-2023
+
+**Twelfth Night: or What You Will 2023** - https://upnext.com.au/event/twelfth-night-or-what-you-will-2023
+
+**Women in Art 2023** - https://upnext.com.au/event/women-in-art-2023
+
+**George Alexander & Denis Mizzi, recent work 2023** - https://upnext.com.au/event/george-alexander-and-denis-mizzi-recent-work-2023
+
+**Life Drawing in the cafe, at Parliament on King 2023** - https://upnext.com.au/event/life-drawing-in-the-cafe-at-parliament-on-king-2023
+
+**Come find me: 10 years of the KAAF 2023** - https://upnext.com.au/event/come-find-me-10-years-of-the-kaaf-2023
+
+**Encountering art in extraordinary places 2023** - https://upnext.com.au/event/encountering-art-in-extraordinary-places-2023
+
+**Gundog 2023** - https://upnext.com.au/event/gundog-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
