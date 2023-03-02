@@ -1,0 +1,56 @@
+# New Sydney Events as at 02 Mar 2023
+New Sydney Events as at 02 Mar 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**2023 Korean Literature Week** - https://upnext.com.au/event/2023-korean-literature-week
+
+**Braving Time: Contemporary Art is Queer Australia 2023** - https://upnext.com.au/event/braving-time-contemporary-art-is-queer-australia-2023
+
+**Luke Thurgate: adore you 2023** - https://upnext.com.au/event/luke-thurgate-adore-you-2023
+
+**Mindful March at The Botanist 2023** - https://upnext.com.au/event/mindful-march-at-the-botanist-2023
+
+**Tai Chi for beginners 2023** - https://upnext.com.au/event/tai-chi-for-beginners-2023
+
+**Tech Savvy Seniors - Computer Classes in English 2023** - https://upnext.com.au/event/tech-savvy-seniors-computer-classes-in-english-2023
+
+**Exhibitions: Caroline Rothwell | Newell Harry 2023** - https://upnext.com.au/event/exhibitions-caroline-rothwell-newell-harry-2023
+
+**Kinky Boots: The Musical 2023** - https://upnext.com.au/event/kinky-boots-the-musical-2023
+
+**Lesbian Love Stories 2023** - https://upnext.com.au/event/lesbian-love-stories-2023
+
+**Beginner Drawing at the Makerspace (16+ yrs) 2023** - https://upnext.com.au/event/beginner-drawing-at-the-makerspace-16-yrs-2023
+
+**Beginner painting at the Makerspace (16+yrs) 2023** - https://upnext.com.au/event/beginner-painting-at-the-makerspace-16yrs-2023
+
+**Creative Kids: Create a Fairy World 2023** - https://upnext.com.au/event/creative-kids-create-a-fairy-world-2023
+
+**Disney Sing-Alongs - Encanto, Moana, The Lion King Frozen 2023** - https://upnext.com.au/event/disney-sing-alongs-encanto-moana-the-lion-king-frozen-2023
+
+**Shape 2022 2023** - https://upnext.com.au/event/shape-2022-2023
+
+**DIY Soy Candle Making with Crystals and Florals 2023** - https://upnext.com.au/event/diy-soy-candle-making-with-crystals-and-florals-2023
+
+**Make a DIY soy candle in a beachcomber dough bowl 2023** - https://upnext.com.au/event/make-a-diy-soy-candle-in-a-beachcomber-dough-bowl-2023
+
+**Make a Planter and Clay Jewellery at Home 2023** - https://upnext.com.au/event/make-a-planter-and-clay-jewellery-at-home-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
