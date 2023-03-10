@@ -1,0 +1,64 @@
+# New Sydney Events as at 10 Mar 2023
+New Sydney Events as at 10 Mar 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Collapsible 2023** - https://upnext.com.au/event/collapsible-2023
+
+**Conchita Carambano exhibition 2023** - https://upnext.com.au/event/conchita-carambano-exhibition-2023
+
+**Taste of Twilight at Blu Bar on 36, Shangri-La Sydney 2023** - https://upnext.com.au/event/taste-of-twilight-at-blu-bar-on-36-shangri-la-sydney-2023
+
+**Teleport: EnLIGHTenment 2023** - https://upnext.com.au/event/teleport-enlightenment-2023
+
+**'Walytjara Minyma Lionel' (Lionel Ladies) 2023** - https://upnext.com.au/event/walytjara-minyma-lionel-lionel-ladies-2023
+
+**Just Not Australian curated by Artspace 2023** - https://upnext.com.au/event/just-not-australian-curated-by-artspace-2023
+
+**Dance cardio workout in the dark 2023** - https://upnext.com.au/event/dance-cardio-workout-in-the-dark-2023
+
+**Introduction to Alcohol Ink 2023** - https://upnext.com.au/event/introduction-to-alcohol-ink-2023
+
+**Dungeons & Dragons: Honour Among Thieves - Preview Screening 2023** - https://upnext.com.au/event/dungeons-and-dragons-honour-among-thieves-preview-screening-2023
+
+**English Writing Support Class with Margaret 2023** - https://upnext.com.au/event/english-writing-support-class-with-margaret-2023
+
+**Killer Podcrafts 2023** - https://upnext.com.au/event/killer-podcrafts-2023
+
+**Monday Night Dating in Surry Hills Ages, 37-49 2023** - https://upnext.com.au/event/monday-night-dating-in-surry-hills-ages-37-49-2023
+
+**Shape 2022: Year 12 seminars 2023** - https://upnext.com.au/event/shape-2022-year-12-seminars-2023
+
+**Super Bowl Monday 2023** - https://upnext.com.au/event/super-bowl-monday-2023
+
+**Tech Savvy Seniors - Computer Classes in Arabic 2023** - https://upnext.com.au/event/tech-savvy-seniors-computer-classes-in-arabic-2023
+
+**Zumba Gold with Zarala at St Helens 2023** - https://upnext.com.au/event/zumba-gold-with-zarala-at-st-helens-2023
+
+**'The Four Seasons' presented by the ACO 2023** - https://upnext.com.au/event/the-four-seasons-presented-by-the-aco-2023
+
+**A Michelin-Starred Affair: Two Renowned Chefs Unite 2023** - https://upnext.com.au/event/a-michelin-starred-affair-two-renowned-chefs-unite-2023
+
+**Building foundations for a successful business [webinar] 2023** - https://upnext.com.au/event/building-foundations-for-a-successful-business-webinar-2023
+
+**CyRise Let's Connect Sydney Cyber Security Community Drinks 2023** - https://upnext.com.au/event/cyrise-lets-connect-sydney-cyber-security-community-drinks-2023
+
+**Donald Runnicles conducts Brahms 2 2023** - https://upnext.com.au/event/donald-runnicles-conducts-brahms-2-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
