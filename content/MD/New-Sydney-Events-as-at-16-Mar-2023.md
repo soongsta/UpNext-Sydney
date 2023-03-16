@@ -1,0 +1,42 @@
+# New Sydney Events as at 16 Mar 2023
+New Sydney Events as at 16 Mar 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**I Talk Through My Art and My Art Talks Through Me 2023** - https://upnext.com.au/event/i-talk-through-my-art-and-my-art-talks-through-me-2023
+
+**Smart Expressions 2023** - https://upnext.com.au/event/smart-expressions-2023
+
+**Weekly Walk and Talk for all ages 2023** - https://upnext.com.au/event/weekly-walk-and-talk-for-all-ages-2023
+
+**Dinner Show: Talk and Tease Comedy Burlesque 2023** - https://upnext.com.au/event/dinner-show-talk-and-tease-comedy-burlesque-2023
+
+**Ships (not boats): botanicals and birds 2023** - https://upnext.com.au/event/ships-not-boats-botanicals-and-birds-2023
+
+**Bald Archy Prize caricature exhibition 2023** - https://upnext.com.au/event/bald-archy-prize-caricature-exhibition-2023
+
+**David Williamson's Rhinestone Rex and Miss Monica 2023** - https://upnext.com.au/event/david-williamsons-rhinestone-rex-and-miss-monica-2023
+
+**On the Edge: Species at Risk 2023** - https://upnext.com.au/event/on-the-edge-species-at-risk-2023
+
+**Portrait Of The Queen - Limited Screenings 2023** - https://upnext.com.au/event/portrait-of-the-queen-limited-screenings-2023
+
+**Feast for Freedom 2023** - https://upnext.com.au/event/feast-for-freedom-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
