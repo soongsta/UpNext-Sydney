@@ -1,0 +1,70 @@
+# New Sydney Events as at 28 Mar 2023
+New Sydney Events as at 28 Mar 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Serving the White Ensign, 110 years of the Australian Fleet 2023** - https://upnext.com.au/event/serving-the-white-ensign-110-years-of-the-australian-fleet-2023
+
+**Sydney Harbour Seafood & Carvery Lunch Cruise 2023** - https://upnext.com.au/event/sydney-harbour-seafood-and-carvery-lunch-cruise-2023
+
+**Paul Knight: L'ombre de ton ombre 2023** - https://upnext.com.au/event/paul-knight-lombre-de-ton-ombre-2023
+
+**Analogue Images Gardiner Delvaux 2023** - https://upnext.com.au/event/analogue-images-gardiner-delvaux-2023
+
+**Kirsten Haydon: Ice Holds 2023** - https://upnext.com.au/event/kirsten-haydon-ice-holds-2023
+
+**Murmurations 2023** - https://upnext.com.au/event/murmurations-2023
+
+**Mutukaku Ngura: Motorcar Country 2023** - https://upnext.com.au/event/mutukaku-ngura-motorcar-country-2023
+
+**Touch and Tone 2023** - https://upnext.com.au/event/touch-and-tone-2023
+
+**Weaving matter: materials and context 2023** - https://upnext.com.au/event/weaving-matter-materials-and-context-2023
+
+**Dobell Drawing Prize 23 2023** - https://upnext.com.au/event/dobell-drawing-prize-23-2023
+
+**Hannah Quinlivan: Conjunctures 2023** - https://upnext.com.au/event/hannah-quinlivan-conjunctures-2023
+
+**The National 4: Australian Art Now 2023** - https://upnext.com.au/event/the-national-4-australian-art-now-2023
+
+**All you can eat lunch Saturday's at NOLA Smokehouse & Bar 2023** - https://upnext.com.au/event/all-you-can-eat-lunch-saturdays-at-nola-smokehouse-and-bar-2023
+
+**Blanche Tilden-ripple effect: a 25 year survey 2023** - https://upnext.com.au/event/blanche-tilden-ripple-effect-a-25-year-survey-2023
+
+**Family Space: Story Tree 2023** - https://upnext.com.au/event/family-space-story-tree-2023
+
+**Historic Walking Tours of Glebe 2023** - https://upnext.com.au/event/historic-walking-tours-of-glebe-2023
+
+**Markets at Glebe Public School 2023** - https://upnext.com.au/event/markets-at-glebe-public-school-2023
+
+**Peppa Pigs Aquarium Adventure at SEA LIFE Sydney Aquarium 2023** - https://upnext.com.au/event/peppa-pigs-aquarium-adventure-at-sea-life-sydney-aquarium-2023
+
+**Peppa Pigs Outback Adventure at WILD LIFE Sydney Zoo 2023** - https://upnext.com.au/event/peppa-pigs-outback-adventure-at-wild-life-sydney-zoo-2023
+
+**Surry Hills @Play Festival 2023** - https://upnext.com.au/event/surry-hills-play-festival-2023
+
+**The Great Golden Egg Hunt 2023** - https://upnext.com.au/event/the-great-golden-egg-hunt-2023
+
+**Historic Walking Tours of Watsons Bay 2023** - https://upnext.com.au/event/historic-walking-tours-of-watsons-bay-2023
+
+**The Stoned Ape 2023** - https://upnext.com.au/event/the-stoned-ape-2023
+
+**Connect Sydney: Project management and events workshop 2023** - https://upnext.com.au/event/connect-sydney-project-management-and-events-workshop-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
