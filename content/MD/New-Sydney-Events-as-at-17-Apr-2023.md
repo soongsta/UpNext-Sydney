@@ -1,0 +1,58 @@
+# New Sydney Events as at 17 Apr 2023
+New Sydney Events as at 17 Apr 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Lee Wise: Seas, trees and something in between 2023** - https://upnext.com.au/event/lee-wise-seas-trees-and-something-in-between-2023
+
+**UFO By Kirby Medway & Solomon Thomas 2023** - https://upnext.com.au/event/ufo-by-kirby-medway-and-solomon-thomas-2023
+
+**Glow 2023** - https://upnext.com.au/event/glow-2023
+
+**I Love Sydney 2023** - https://upnext.com.au/event/i-love-sydney-2023
+
+**Music & movement class with Ian in Alexandria 2023** - https://upnext.com.au/event/music-and-movement-class-with-ian-in-alexandria-2023
+
+**Neverland: An Immersive Peter Pan Inspired Bar 2023** - https://upnext.com.au/event/neverland-an-immersive-peter-pan-inspired-bar-2023
+
+**Redfern Live and Loud 2023** - https://upnext.com.au/event/redfern-live-and-loud-2023
+
+**Sustainability workshops for small-to-medium size businesses 2023** - https://upnext.com.au/event/sustainability-workshops-for-small-to-medium-size-businesses-2023
+
+**Z Belles, Female-Only Pinball Night 2023** - https://upnext.com.au/event/z-belles-female-only-pinball-night-2023
+
+**For The Love of a Pug 2023** - https://upnext.com.au/event/for-the-love-of-a-pug-2023
+
+**MADE by Clay Cartel 2023** - https://upnext.com.au/event/made-by-clay-cartel-2023
+
+**Tales of Kabbarli 2023** - https://upnext.com.au/event/tales-of-kabbarli-2023
+
+**Pirates of Penzance 2023** - https://upnext.com.au/event/pirates-of-penzance-2023
+
+**Crochet your own funky shaggy eco hat workshop 2023** - https://upnext.com.au/event/crochet-your-own-funky-shaggy-eco-hat-workshop-2023
+
+**Dosed 2: The Trip Of A Lifetime - Limited Screenings 2023** - https://upnext.com.au/event/dosed-2-the-trip-of-a-lifetime-limited-screenings-2023
+
+**Four Pillars Gin Workshop 2023** - https://upnext.com.au/event/four-pillars-gin-workshop-2023
+
+**Guitar Ensemble Class (Beginners) 2023** - https://upnext.com.au/event/guitar-ensemble-class-beginners-2023
+
+**Sunday movie night: The Dish 2023** - https://upnext.com.au/event/sunday-movie-night-the-dish-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
