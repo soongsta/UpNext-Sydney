@@ -1,0 +1,38 @@
+# New Sydney Events as at 19 Apr 2023
+New Sydney Events as at 19 Apr 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**Sydney Fringe Festival 2023 Artist Registration** - https://upnext.com.au/event/sydney-fringe-festival-2023-artist-registration
+
+**Mother's Day Masterclasses 2023** - https://upnext.com.au/event/mothers-day-masterclasses-2023
+
+**Zumba with Pawel in Darlinghurst 2023** - https://upnext.com.au/event/zumba-with-pawel-in-darlinghurst-2023
+
+**Jason Singh - Heaven's Greatest Hits 2023** - https://upnext.com.au/event/jason-singh-heavens-greatest-hits-2023
+
+**Pre-ANZAC Day Speed Dating in Surry Hills, Ages 30-45 2023** - https://upnext.com.au/event/pre-anzac-day-speed-dating-in-surry-hills-ages-30-45-2023
+
+**Speed dating for ages 38-50 2023** - https://upnext.com.au/event/speed-dating-for-ages-38-50-2023
+
+**Youth Week Cook4Good Volunteer Program 2023** - https://upnext.com.au/event/youth-week-cook4good-volunteer-program-2023
+
+**ANZAC Day Sydney CBD March 2023** - https://upnext.com.au/event/anzac-day-sydney-cbd-march-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
