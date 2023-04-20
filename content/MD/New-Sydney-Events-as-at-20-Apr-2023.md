@@ -1,0 +1,40 @@
+# New Sydney Events as at 20 Apr 2023
+New Sydney Events as at 20 Apr 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**City-wide treasure hunt for music lovers in Sydney 2023** - https://upnext.com.au/event/city-wide-treasure-hunt-for-music-lovers-in-sydney-2023
+
+**Dear Earth Exhibition by Monica Pronk & Fran Middleton 2023** - https://upnext.com.au/event/dear-earth-exhibition-by-monica-pronk-and-fran-middleton-2023
+
+**Coloured Digger event and Anzac Day March 2023** - https://upnext.com.au/event/coloured-digger-event-and-anzac-day-march-2023
+
+**Anzac Day Dawn Service in Martin Place 2023** - https://upnext.com.au/event/anzac-day-dawn-service-in-martin-place-2023
+
+**An Open Heart: Love, compassion, joy and equanimity 2023** - https://upnext.com.au/event/an-open-heart-love-compassion-joy-and-equanimity-2023
+
+**ANZAC Dawn Service at the historic Obelisk Moore Park 2023** - https://upnext.com.au/event/anzac-dawn-service-at-the-historic-obelisk-moore-park-2023
+
+**ANZAC Day at Salty's Bondi 2023** - https://upnext.com.au/event/anzac-day-at-saltys-bondi-2023
+
+**ANZAC Day at the Bay 2023** - https://upnext.com.au/event/anzac-day-at-the-bay-2023
+
+**ANZAC Day | Cruise Bar 2023** - https://upnext.com.au/event/anzac-day-cruise-bar-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
