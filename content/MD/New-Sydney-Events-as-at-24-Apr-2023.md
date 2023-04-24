@@ -1,0 +1,52 @@
+# New Sydney Events as at 24 Apr 2023
+New Sydney Events as at 24 Apr 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney
+
+
+**After School Art Class 2023** - https://upnext.com.au/event/after-school-art-class-2023
+
+**Bilingual Rhymetime @ Darling Square, 0 to 2 years 2023** - https://upnext.com.au/event/bilingual-rhymetime-darling-square-0-to-2-years-2023
+
+**Our Gil 2023** - https://upnext.com.au/event/our-gil-2023
+
+**Raging Bull - 4K Restoration - Limited Screenings 2023** - https://upnext.com.au/event/raging-bull-4k-restoration-limited-screenings-2023
+
+**Shen Yun 2023 - Sydney** - https://upnext.com.au/event/shen-yun-2023-sydney
+
+**Tapestry 2023** - https://upnext.com.au/event/tapestry-2023
+
+**These Things art exhibition 2023** - https://upnext.com.au/event/these-things-art-exhibition-2023
+
+**Brazilian Portuguese: Beginners 2023** - https://upnext.com.au/event/brazilian-portuguese-beginners-2023
+
+**City Nature Challenge 2023** - https://upnext.com.au/event/city-nature-challenge-2023
+
+**Gloria & The Four Seasons | Australian Brandenburg Orchestra 2023** - https://upnext.com.au/event/gloria-and-the-four-seasons-australian-brandenburg-orchestra-2023
+
+**Lost and Found: Stories from the City of Sydney Archives 2023** - https://upnext.com.au/event/lost-and-found-stories-from-the-city-of-sydney-archives-2023
+
+**Narrative Writing: fiction and non-fiction 2023** - https://upnext.com.au/event/narrative-writing-fiction-and-non-fiction-2023
+
+**You Can Draw Anything 2023** - https://upnext.com.au/event/you-can-draw-anything-2023
+
+**5 Week Advanced Flying Trapeze Course 2023** - https://upnext.com.au/event/5-week-advanced-flying-trapeze-course-2023
+
+**Make Your Mark Drawing Workshop 2023** - https://upnext.com.au/event/make-your-mark-drawing-workshop-2023
+
+
+
+See more events at https://upnext.com.au/sydney
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra, where you will find Melbourne Events, Activities & Things To Do
