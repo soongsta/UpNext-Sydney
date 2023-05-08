@@ -1,0 +1,49 @@
+# New Sydney Events as at 08 May 2023
+New Sydney Events as at 08 May 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+https://upnext.com.au/sydney/
+
+
+**Pitching To Scale Workshop Series At The Scaleup Hub 2023**
+ https://upnext.com.au/event/pitching-to-scale-workshop-series-at-the-scaleup-hub-2023/
+
+**Table Tennis at St Helen's 2023**
+ https://upnext.com.au/event/table-tennis-at-st-helens-2023/
+
+**WONDER: Wordless Picture Books by 7 Artists from South Korea 2023**
+ https://upnext.com.au/event/wonder-wordless-picture-books-by-7-artists-from-south-korea-2023/
+
+**Cooking and nutrition classes in Alexandria 2023**
+ https://upnext.com.au/event/cooking-and-nutrition-classes-in-alexandria-2023/
+
+**HARBOUR: Our Views 2023**
+ https://upnext.com.au/event/harbour-our-views-2023/
+
+**A must-see online event: South African Film Festival 2023**
+ https://upnext.com.au/event/a-must-see-online-event-south-african-film-festival-2023/
+
+**Exhibition: black AND white | Konstantina 2023**
+ https://upnext.com.au/event/exhibition-black-and-white-konstantina-2023/
+
+**In the Wild group show 2023**
+ https://upnext.com.au/event/in-the-wild-group-show-2023/
+
+**A Clockwork Orange and Beyond - Australian Chamber Orchestra 2023**
+ https://upnext.com.au/event/a-clockwork-orange-and-beyond-australian-chamber-orchestra-2023/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
