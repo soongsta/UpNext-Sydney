@@ -1,11 +1,11 @@
 # UpNext-Sydney
 
-UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+UpNext Sydney | Sydney Events, Activities &amp; Things To Do | What's On Sydney
 
 Website: https://upnext.com.au/sydney/
 
 Youtube Channel: https://www.youtube.com/@upnextsydney/videos
-
+&nbsp;  
 Also check out:
 
 - UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
