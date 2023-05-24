@@ -1,0 +1,101 @@
+# New Sydney Events as at 24 May 2023
+New Sydney Events as at 24 May 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Renclub artist demonstrations 2023**
+ https://upnext.com.au/event/renclub-artist-demonstrations-2023/
+
+**Aperol Aperitivo Pop-Up Bar @ Ventuno Walsh Bay 2023**
+ https://upnext.com.au/event/aperol-aperitivo-pop-up-bar-ventuno-walsh-bay-2023/
+
+**Best Vantage Point - Showboat Vivid Sydney Cruise 2023**
+ https://upnext.com.au/event/best-vantage-point-showboat-vivid-sydney-cruise-2023/
+
+**Hollywood Quarter Celebrates Vivid Sydney 2023**
+ https://upnext.com.au/event/hollywood-quarter-celebrates-vivid-sydney-2023/
+
+**Introduction to watercolours 2023**
+ https://upnext.com.au/event/introduction-to-watercolours-2023/
+
+**Introduction to Watercolours - four week course 2023**
+ https://upnext.com.au/event/introduction-to-watercolours-four-week-course-2023/
+
+**Light Up Your Night With Glass Boat Vivid Sydney Cruises 2023**
+ https://upnext.com.au/event/light-up-your-night-with-glass-boat-vivid-sydney-cruises-2023/
+
+**Light Up Your Senses at The Pylon 2023**
+ https://upnext.com.au/event/light-up-your-senses-at-the-pylon-2023/
+
+**Lightscape 2023**
+ https://upnext.com.au/event/lightscape-2023/
+
+**The Lucky Country 2023**
+ https://upnext.com.au/event/the-lucky-country-2023/
+
+**The Vivid Sydney Climb 2023**
+ https://upnext.com.au/event/the-vivid-sydney-climb-2023/
+
+**Tumbalong Nights 2023**
+ https://upnext.com.au/event/tumbalong-nights-2023/
+
+**Vivid dinner experience 2023**
+ https://upnext.com.au/event/vivid-dinner-experience-2023/
+
+**Vivid Glow Party 2023**
+ https://upnext.com.au/event/vivid-glow-party-2023/
+
+**Vivid Ideas 2023**
+ https://upnext.com.au/event/vivid-ideas-2023/
+
+**Vivid Sydney 2023**
+ https://upnext.com.au/event/vivid-sydney-2023/
+
+**Vivid Sydney at Sydney Tower Eye 2023**
+ https://upnext.com.au/event/vivid-sydney-at-sydney-tower-eye-2023/
+
+**Vivid Sydney at the MCA Australia 2023**
+ https://upnext.com.au/event/vivid-sydney-at-the-mca-australia-2023/
+
+**Vivid Sydney Cruises: A New Light Awaits This Winter 2023**
+ https://upnext.com.au/event/vivid-sydney-cruises-a-new-light-awaits-this-winter-2023/
+
+**Vivid Sydney Cruises: Experience Vivid Lights With Magistic 2023**
+ https://upnext.com.au/event/vivid-sydney-cruises-experience-vivid-lights-with-magistic-2023/
+
+**Vivid Sydney Cruises: Where light meets water 2023**
+ https://upnext.com.au/event/vivid-sydney-cruises-where-light-meets-water-2023/
+
+**Vivid Sydney Dinner at Altitude, Shangri-La Sydney 2023**
+ https://upnext.com.au/event/vivid-sydney-dinner-at-altitude-shangri-la-sydney-2023/
+
+**Vivid Sydney Light Cruises 2023**
+ https://upnext.com.au/event/vivid-sydney-light-cruises-2023/
+
+**Vivid Sydney Supper Club 2023**
+ https://upnext.com.au/event/vivid-sydney-supper-club-2023/
+
+**WILD NIGHTS tour at WILD LIFE Sydney Zoo 2023**
+ https://upnext.com.au/event/wild-nights-tour-at-wild-life-sydney-zoo-2023/
+
+**Chefs on the Harbour | Vivid Sydney 2023**
+ https://upnext.com.au/event/chefs-on-the-harbour-vivid-sydney-2023/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
