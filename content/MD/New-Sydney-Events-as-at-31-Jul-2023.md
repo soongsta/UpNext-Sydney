@@ -1,0 +1,65 @@
+# New Sydney Events as at 31 Jul 2023
+New Sydney Events as at 31 Jul 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Elvis - The Biggest Elvis Show On Earth 2023**
+ https://upnext.com.au/event/elvis-the-biggest-elvis-show-on-earth-2023/
+
+**Sydney Science Festival 2023**
+ https://upnext.com.au/event/sydney-science-festival-2023/
+
+**'Walanbaa Yulu-Gi' Burn the Floor featuring Mitch Tambo 2023**
+ https://upnext.com.au/event/walanbaa-yulu-gi-burn-the-floor-featuring-mitch-tambo-2023/
+
+**Chatswood by Candlelight 2023**
+ https://upnext.com.au/event/chatswood-by-candlelight-2023/
+
+**Poetry Month: Rise! Voices and Hands! 2023**
+ https://upnext.com.au/event/poetry-month-rise-voices-and-hands-2023/
+
+**Twilight at The Pylon: extended hours throughout August 2023**
+ https://upnext.com.au/event/twilight-at-the-pylon-extended-hours-throughout-august-2023/
+
+**Alan Rose: Geometric Progression 2023**
+ https://upnext.com.au/event/alan-rose-geometric-progression-2023/
+
+**Exhibition - Impressing the Ink 2023**
+ https://upnext.com.au/event/exhibition-impressing-the-ink-2023/
+
+**Order-Disorder 2023**
+ https://upnext.com.au/event/order-disorder-2023/
+
+**Ralph Stanton: Looking for the Light 2023**
+ https://upnext.com.au/event/ralph-stanton-looking-for-the-light-2023/
+
+**Forty x 40 Art Exhibition 2023**
+ https://upnext.com.au/event/forty-x-40-art-exhibition-2023/
+
+**j.a.m: Show + Tell 2023**
+ https://upnext.com.au/event/jam-show-tell-2023/
+
+**Lynn Pavey: Febrile Momentum 2023**
+ https://upnext.com.au/event/lynn-pavey-febrile-momentum-2023/
+
+**Murder For Two 2023**
+ https://upnext.com.au/event/murder-for-two-2023/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
