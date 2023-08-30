@@ -1,0 +1,68 @@
+# New Sydney Events as at 30 Aug 2023
+New Sydney Events as at 30 Aug 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Free Scoops At Gelatissimo Darling Quarter To Celebrate Their Teenage Mutant Ninja Turtles: Mutant Mayhem Collab! 2023**
+ https://upnext.com.au/event/free-scoops-at-gelatissimo-darling-quarter-to-celebrate-their-teenage-mutant-ninja-turtles-mutant-mayhem-collab-2023/
+
+**Grape, Grain & Graze Festival 2023**
+ https://upnext.com.au/event/grape-grain-and-graze-festival-2023/
+
+**Ridin' Hearts Festival 2023**
+ https://upnext.com.au/event/ridin-hearts-festival-2023/
+
+**1001 Remarkable Objects 2023**
+ https://upnext.com.au/event/1001-remarkable-objects-2023/
+
+**50 Years of Vertigo 2023**
+ https://upnext.com.au/event/50-years-of-vertigo-2023/
+
+**Fabulous Geometric Art London Style 2023**
+ https://upnext.com.au/event/fabulous-geometric-art-london-style-2023/
+
+**Paintings by Michael Kelly and Bronzes by Alan Somerville 2023**
+ https://upnext.com.au/event/paintings-by-michael-kelly-and-bronzes-by-alan-somerville-2023/
+
+**Voices from Australia's Banknotes 2023**
+ https://upnext.com.au/event/voices-from-australias-banknotes-2023/
+
+**Group show of four: painters & a ceramicist 2023**
+ https://upnext.com.au/event/group-show-of-four-painters-and-a-ceramicist-2023/
+
+**StepOut for ReachOut 2023**
+ https://upnext.com.au/event/stepout-for-reachout-2023/
+
+**Finding a Voice Through Fashion: Charles Frederick Worth 2023**
+ https://upnext.com.au/event/finding-a-voice-through-fashion-charles-frederick-worth-2023/
+
+**Hologram Dinosaurs at The Australian Museum 2023**
+ https://upnext.com.au/event/hologram-dinosaurs-at-the-australian-museum-2023/
+
+**Intro to Improvised Comedy 2023**
+ https://upnext.com.au/event/intro-to-improvised-comedy-2023/
+
+**Connect Sydney - morning tea feedback session 2023**
+ https://upnext.com.au/event/connect-sydney-morning-tea-feedback-session-2023/
+
+**2nd Chance - One-Off Screening 2023**
+ https://upnext.com.au/event/2nd-chance-one-off-screening-2023/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
