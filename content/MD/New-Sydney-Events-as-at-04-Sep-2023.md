@@ -1,0 +1,98 @@
+# New Sydney Events as at 04 Sep 2023
+New Sydney Events as at 04 Sep 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**100 Years Of Suntory At Zephyr Sky Bar 2023**
+ https://upnext.com.au/event/100-years-of-suntory-at-zephyr-sky-bar-2023/
+
+**101 Ways To Annoy Your Parents And Other Really Old People 2023**
+ https://upnext.com.au/event/101-ways-to-annoy-your-parents-and-other-really-old-people-2023/
+
+**A Pocket Sized Circus 2023**
+ https://upnext.com.au/event/a-pocket-sized-circus-2023/
+
+**A Wonderfully Wacky Wizard 2023**
+ https://upnext.com.au/event/a-wonderfully-wacky-wizard-2023/
+
+**Adults Only Magic Show 2023**
+ https://upnext.com.au/event/adults-only-magic-show-2023/
+
+**Appreciating The Moon 2023**
+ https://upnext.com.au/event/appreciating-the-moon-2023/
+
+**Atomic Habits - James Clear Live 2023**
+ https://upnext.com.au/event/atomic-habits-james-clear-live-2023/
+
+**Besties With Gwyneth Paltrow 2023**
+ https://upnext.com.au/event/besties-with-gwyneth-paltrow-2023/
+
+**Beverly Kills Presents: Heaven & Hell 2023**
+ https://upnext.com.au/event/beverly-kills-presents-heaven-and-hell-2023/
+
+**Know Our Names 2023**
+ https://upnext.com.au/event/know-our-names-2023/
+
+**Cantonese Language Tour of Entwined Within 2023**
+ https://upnext.com.au/event/cantonese-language-tour-of-entwined-within-2023/
+
+**Mandarin Language Tour of Entwined Within 2023**
+ https://upnext.com.au/event/mandarin-language-tour-of-entwined-within-2023/
+
+**Experience World-Class Cocktails in Sydney's Renowned Bars 2023**
+ https://upnext.com.au/event/experience-world-class-cocktails-in-sydneys-renowned-bars-2023/
+
+**Peter MacDonough and friends 2023**
+ https://upnext.com.au/event/peter-macdonough-and-friends-2023/
+
+**Science Comedy Show 2023**
+ https://upnext.com.au/event/science-comedy-show-2023/
+
+**Bare 2023**
+ https://upnext.com.au/event/bare-2023/
+
+**Coco Elder: The Never Never 2023**
+ https://upnext.com.au/event/coco-elder-the-never-never-2023/
+
+**Tarot & Tales art exhibition 2023**
+ https://upnext.com.au/event/tarot-and-tales-art-exhibition-2023/
+
+**David Jones Spring flower show 2023**
+ https://upnext.com.au/event/david-jones-spring-flower-show-2023/
+
+**Egyptian Series Bellydance Program: Belly Moves 2023**
+ https://upnext.com.au/event/egyptian-series-bellydance-program-belly-moves-2023/
+
+**Live Jazz at The Swinging Cat with the Sazeracs 2023**
+ https://upnext.com.au/event/live-jazz-at-the-swinging-cat-with-the-sazeracs-2023/
+
+**Marijke Greenway paintings 2023**
+ https://upnext.com.au/event/marijke-greenway-paintings-2023/
+
+**Peter MacDonough 2023**
+ https://upnext.com.au/event/peter-macdonough-2023/
+
+**Forest Bathing in the Rose Gums, Centennial Park 2023**
+ https://upnext.com.au/event/forest-bathing-in-the-rose-gums-centennial-park-2023/
+
+**Under the Sky: Ceramics + Paintings by Niharika Hukku 2023**
+ https://upnext.com.au/event/under-the-sky-ceramics-paintings-by-niharika-hukku-2023/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
