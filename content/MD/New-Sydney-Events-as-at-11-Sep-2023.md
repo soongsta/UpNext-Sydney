@@ -1,0 +1,77 @@
+# New Sydney Events as at 11 Sep 2023
+New Sydney Events as at 11 Sep 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Letter to Self 2023**
+ https://upnext.com.au/event/letter-to-self-2023/
+
+**A self-guided audio+puzzle tour of the Sydney Harbour Bridge 2023**
+ https://upnext.com.au/event/a-self-guided-audiopuzzle-tour-of-the-sydney-harbour-bridge-2023/
+
+**Animal Yoga 2023**
+ https://upnext.com.au/event/animal-yoga-2023/
+
+**Meditation at the Museum 2023**
+ https://upnext.com.au/event/meditation-at-the-museum-2023/
+
+**Shaun Hayes Single-Use 2023**
+ https://upnext.com.au/event/shaun-hayes-single-use-2023/
+
+**Australian Life Exhibition 2023**
+ https://upnext.com.au/event/australian-life-exhibition-2023/
+
+**Little Sydney Lives Exhibition 2023**
+ https://upnext.com.au/event/little-sydney-lives-exhibition-2023/
+
+**Christ Almighty: A Comedy of Biblical Proportions 2023**
+ https://upnext.com.au/event/christ-almighty-a-comedy-of-biblical-proportions-2023/
+
+**Colin Small exhibition 2023**
+ https://upnext.com.au/event/colin-small-exhibition-2023/
+
+**Perimeter Outpost 2023**
+ https://upnext.com.au/event/perimeter-outpost-2023/
+
+**Tarek Atoui: Waters' Witness 2023**
+ https://upnext.com.au/event/tarek-atoui-waters-witness-2023/
+
+**Hysteresis 2023**
+ https://upnext.com.au/event/hysteresis-2023/
+
+**Kwangho Lee: Cutting Lines 2023**
+ https://upnext.com.au/event/kwangho-lee-cutting-lines-2023/
+
+**Material Ecologies Design Lab x Sydney Design Week 2023**
+ https://upnext.com.au/event/material-ecologies-design-lab-x-sydney-design-week-2023/
+
+**Metamorphosis 2023**
+ https://upnext.com.au/event/metamorphosis-2023/
+
+**Sydney Design Week 2023**
+ https://upnext.com.au/event/sydney-design-week-2023/
+
+**Thread 2023**
+ https://upnext.com.au/event/thread-2023/
+
+**Timberlina & Friends: A Drag Cabaret 2023**
+ https://upnext.com.au/event/timberlina-and-friends-a-drag-cabaret-2023/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
