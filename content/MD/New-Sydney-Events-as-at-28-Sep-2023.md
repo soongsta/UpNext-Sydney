@@ -1,0 +1,62 @@
+# New Sydney Events as at 28 Sep 2023
+New Sydney Events as at 28 Sep 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Spankie Jackzon - Just The Tip 2023**
+ https://upnext.com.au/event/spankie-jackzon-just-the-tip-2023/
+
+**Flabbergasters 2023**
+ https://upnext.com.au/event/flabbergasters-2023/
+
+**Street League Skateboarding: Sydney 2023**
+ https://upnext.com.au/event/street-league-skateboarding-sydney-2023/
+
+**Awestruck - A Celebration of Nature and Beauty 2023**
+ https://upnext.com.au/event/awestruck-a-celebration-of-nature-and-beauty-2023/
+
+**Badge Making 2023**
+ https://upnext.com.au/event/badge-making-2023/
+
+**The Lady Hampshire Long Weekender 2023**
+ https://upnext.com.au/event/the-lady-hampshire-long-weekender-2023/
+
+**Picnic Under the Bridge 2023**
+ https://upnext.com.au/event/picnic-under-the-bridge-2023/
+
+**Meditation in Hyde Park 2023**
+ https://upnext.com.au/event/meditation-in-hyde-park-2023/
+
+**Clay and Sip Class: Slab Vases and Bottomless Rose 2023**
+ https://upnext.com.au/event/clay-and-sip-class-slab-vases-and-bottomless-rose-2023/
+
+**Community line dancing classes for seniors 2023**
+ https://upnext.com.au/event/community-line-dancing-classes-for-seniors-2023/
+
+**Dan Murphy's Martin Place presents: It's Suntory Time! 2023**
+ https://upnext.com.au/event/dan-murphys-martin-place-presents-its-suntory-time-2023/
+
+**Decision Thinking Accelerator 2023**
+ https://upnext.com.au/event/decision-thinking-accelerator-2023/
+
+**Disney Princess - The Concert 2023**
+ https://upnext.com.au/event/disney-princess-the-concert-2023/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
