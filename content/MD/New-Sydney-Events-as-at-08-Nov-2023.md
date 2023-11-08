@@ -1,0 +1,59 @@
+# New Sydney Events as at 08 Nov 2023
+New Sydney Events as at 08 Nov 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Pumphouse's Ultimate Garden Party 2023**
+ https://upnext.com.au/event/pumphouses-ultimate-garden-party-2023/
+
+**Champagne Bar & Brix Distillery Rum Dinner 2023**
+ https://upnext.com.au/event/champagne-bar-and-brix-distillery-rum-dinner-2023/
+
+**Devo 2023**
+ https://upnext.com.au/event/devo-2023/
+
+**Jackson Browne - Rescheduled 2023**
+ https://upnext.com.au/event/jackson-browne-rescheduled-2023/
+
+**Festive Florals Wreath Making 2023**
+ https://upnext.com.au/event/festive-florals-wreath-making-2023/
+
+**Brett Whiteley Studio 2023**
+ https://upnext.com.au/event/brett-whiteley-studio-2023/
+
+**Friendship in Lockdown 2023**
+ https://upnext.com.au/event/friendship-in-lockdown-2023/
+
+**Head On Photo Festival 2023 at Paddington Reservoir Gardens**
+ https://upnext.com.au/event/head-on-photo-festival-2023-at-paddington-reservoir-gardens/
+
+**The Australian Ballet: The Dream / Marguerite and Armand 2023**
+ https://upnext.com.au/event/the-australian-ballet-the-dream-marguerite-and-armand-2023/
+
+**The Lost Boys 2023**
+ https://upnext.com.au/event/the-lost-boys-2023/
+
+**Darlo Drama Trial Beginners Acting Class 2023**
+ https://upnext.com.au/event/darlo-drama-trial-beginners-acting-class-2023/
+
+**Head On Photo Festival 2023 at Bondi Beach**
+ https://upnext.com.au/event/head-on-photo-festival-2023-at-bondi-beach/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
