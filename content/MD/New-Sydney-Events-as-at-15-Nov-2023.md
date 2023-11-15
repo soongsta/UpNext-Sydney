@@ -1,0 +1,65 @@
+# New Sydney Events as at 15 Nov 2023
+New Sydney Events as at 15 Nov 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Eco gift wrapping - Furoshiki and origami 2023**
+ https://upnext.com.au/event/eco-gift-wrapping-furoshiki-and-origami-2023/
+
+**Balance 2023**
+ https://upnext.com.au/event/balance-2023/
+
+**Diwali At Sydney Tower Eye 2023**
+ https://upnext.com.au/event/diwali-at-sydney-tower-eye-2023/
+
+**Flamenco dance technique & choreography 2023**
+ https://upnext.com.au/event/flamenco-dance-technique-and-choreography-2023/
+
+**Gracious Hospitality 2023**
+ https://upnext.com.au/event/gracious-hospitality-2023/
+
+**Santa's magical light forest at Market City 2023**
+ https://upnext.com.au/event/santas-magical-light-forest-at-market-city-2023/
+
+**Marco Luccio - Myth, Mayhem, Metropolis 2023**
+ https://upnext.com.au/event/marco-luccio-myth-mayhem-metropolis-2023/
+
+**Mini Movers Sydney 2023**
+ https://upnext.com.au/event/mini-movers-sydney-2023/
+
+**My Wild Crazy Garden by Mary Pinnock 2023**
+ https://upnext.com.au/event/my-wild-crazy-garden-by-mary-pinnock-2023/
+
+**Paintings by Janice Ralph & Janet Cheetham 2023**
+ https://upnext.com.au/event/paintings-by-janice-ralph-and-janet-cheetham-2023/
+
+**Salote Tawale: I remember you 2023**
+ https://upnext.com.au/event/salote-tawale-i-remember-you-2023/
+
+**VIP A Cabaret: Inspired by Studio 54 2023**
+ https://upnext.com.au/event/vip-a-cabaret-inspired-by-studio-54-2023/
+
+**Ramses & The Gold of the Pharaohs 2023**
+ https://upnext.com.au/event/ramses-and-the-gold-of-the-pharaohs-2023/
+
+**Youth Mental Health First Aid 2023**
+ https://upnext.com.au/event/youth-mental-health-first-aid-2023/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
