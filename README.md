@@ -6,9 +6,9 @@ Website: https://upnext.com.au/sydney/
 
 - Youtube Channel: https://www.youtube.com/@upnextsydney/videos
 
-- TikTok: https://sourceforge.net/p/upnextsydney/code
+- TikTok: https://www.tiktok.com/@upnextsydney
 
-- Instagram: https://sourceforge.net/p/upnextsydney/code
+- Instagram: https://www.instagram.com/upnextsydney/
 
 - Facebook: https://www.facebook.com/upnextsydney
   &nbsp;  
