@@ -5,6 +5,10 @@ UpNext Sydney | Sydney Events, Activities &amp; Things To Do | What's On Sydney
 Website: https://upnext.com.au/sydney/
 
 Youtube Channel: https://www.youtube.com/@upnextsydney/videos
+TikTok: https://sourceforge.net/p/upnextsydney/code
+Instagram: https://sourceforge.net/p/upnextsydney/code
+Facebook: https://www.facebook.com/upnextsydney
+&nbsp;  
 &nbsp;  
 &nbsp;
 
