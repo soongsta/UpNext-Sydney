@@ -1,0 +1,101 @@
+# New Sydney Events as at 04 Dec 2023
+New Sydney Events as at 04 Dec 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Christmas Fireworks 2023**
+ https://upnext.com.au/event/christmas-fireworks-2023/
+
+**Letters To Santa 2023**
+ https://upnext.com.au/event/letters-to-santa-2023/
+
+**Santa's Workshop 2023**
+ https://upnext.com.au/event/santas-workshop-2023/
+
+**The Wiggles Wiggly Big Day Out! Tour 2023**
+ https://upnext.com.au/event/the-wiggles-wiggly-big-day-out-tour-2023/
+
+**The Holiday In Concert 2023**
+ https://upnext.com.au/event/the-holiday-in-concert-2023/
+
+**Paint and sip mocktails - Summer school holiday program 2023**
+ https://upnext.com.au/event/paint-and-sip-mocktails-summer-school-holiday-program-2023/
+
+**SafeTALK - Suicide alertness training 2023**
+ https://upnext.com.au/event/safetalk-suicide-alertness-training-2023/
+
+**Responsible service of alcohol (RSA) course - 50% subsidised 2023**
+ https://upnext.com.au/event/responsible-service-of-alcohol-rsa-course-50-subsidised-2023/
+
+**James Blunt | Aware Super Theatre 2024**
+ https://upnext.com.au/event/james-blunt-aware-super-theatre-2024/
+
+**Australian Manufacturing Week 2024**
+ https://upnext.com.au/event/australian-manufacturing-week-2024/
+
+**A Glassy Affair 2023**
+ https://upnext.com.au/event/a-glassy-affair-2023/
+
+**Archetypes of Love 2023**
+ https://upnext.com.au/event/archetypes-of-love-2023/
+
+**Art Of Re-Gifting 2023**
+ https://upnext.com.au/event/art-of-re-gifting-2023/
+
+**Christmas Party Time At SoCal 2023**
+ https://upnext.com.au/event/christmas-party-time-at-socal-2023/
+
+**Liam Waldie: Uncharted 2023**
+ https://upnext.com.au/event/liam-waldie-uncharted-2023/
+
+**Pedal Boats in Darling Harbour 2023**
+ https://upnext.com.au/event/pedal-boats-in-darling-harbour-2023/
+
+**Team Up For This Amazing Sydney Christmas Party Cruise 2023**
+ https://upnext.com.au/event/team-up-for-this-amazing-sydney-christmas-party-cruise-2023/
+
+**The Australian Ballet: Swan Lake 2023**
+ https://upnext.com.au/event/the-australian-ballet-swan-lake-2023/
+
+**With One Voice community sing-along 2023**
+ https://upnext.com.au/event/with-one-voice-community-sing-along-2023/
+
+**Drink & make art 2023**
+ https://upnext.com.au/event/drink-and-make-art-2023/
+
+**New Breed 2023**
+ https://upnext.com.au/event/new-breed-2023/
+
+**New Breed: The Future of Contemporary Dance 2023**
+ https://upnext.com.au/event/new-breed-the-future-of-contemporary-dance-2023/
+
+**Top Glass Boat Christmas Party Cruises 2023**
+ https://upnext.com.au/event/top-glass-boat-christmas-party-cruises-2023/
+
+**Ai Sasaki: Wayfinder's Passage 渡りの道しるべ 2023**
+ https://upnext.com.au/event/ai-sasaki-wayfinders-passage-2023/
+
+**The White Mermaid or The Little Lotus 2023**
+ https://upnext.com.au/event/the-white-mermaid-or-the-little-lotus-2023/
+
+**Stories 2023**
+ https://upnext.com.au/event/stories-2023/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
