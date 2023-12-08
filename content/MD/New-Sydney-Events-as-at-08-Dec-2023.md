@@ -1,0 +1,104 @@
+# New Sydney Events as at 08 Dec 2023
+New Sydney Events as at 08 Dec 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**The Harbour Village 2023**
+ https://upnext.com.au/event/the-harbour-village-2023/
+
+**The Nutcracker - Tanya Pearson & Sydney Youth Orchestra 2023**
+ https://upnext.com.au/event/the-nutcracker-tanya-pearson-and-sydney-youth-orchestra-2023/
+
+**Ryan Adams – CANCELLED 2024**
+ https://upnext.com.au/event/ryan-adams-cancelled-2024/
+
+**Miriam Yeung - My Tree of Live World Tour | Aware Super Theatre 2024**
+ https://upnext.com.au/event/miriam-yeung-my-tree-of-live-world-tour-aware-super-theatre-2024/
+
+**James Taylor | Aware Super Theatre 2024**
+ https://upnext.com.au/event/james-taylor-aware-super-theatre-2024/
+
+**Sadhguru in Sydney, Australia 2024**
+ https://upnext.com.au/event/sadhguru-in-sydney-australia-2024/
+
+**George Street Food Gallery at The Rocks 2023**
+ https://upnext.com.au/event/george-street-food-gallery-at-the-rocks-2023/
+
+**Hoda Afshar: A Curve is a Broken Line 2023**
+ https://upnext.com.au/event/hoda-afshar-a-curve-is-a-broken-line-2023/
+
+**Sunset Sessions at Barangaroo 2023**
+ https://upnext.com.au/event/sunset-sessions-at-barangaroo-2023/
+
+**Book Fair 2023**
+ https://upnext.com.au/event/book-fair-2023/
+
+**Journey to the Antarctic 2023**
+ https://upnext.com.au/event/journey-to-the-antarctic-2023/
+
+**School Holiday Art Workshops 2023**
+ https://upnext.com.au/event/school-holiday-art-workshops-2023/
+
+**art glass exhibition 2023**
+ https://upnext.com.au/event/art-glass-exhibition-2023/
+
+**Natural Skincare Christmas Gift Making Workshop 2023**
+ https://upnext.com.au/event/natural-skincare-christmas-gift-making-workshop-2023/
+
+**Noel! Noel! | Australian Brandenburg Orchestra 2023**
+ https://upnext.com.au/event/noel-noel-australian-brandenburg-orchestra-2023/
+
+**The Harbour Village 2023**
+ https://upnext.com.au/event/the-harbour-village-2023/
+
+**The Rocks Markets: Christmas Edition 2023**
+ https://upnext.com.au/event/the-rocks-markets-christmas-edition-2023/
+
+**Wonka High Tea Buffet at Shangri-La Sydney 2023**
+ https://upnext.com.au/event/wonka-high-tea-buffet-at-shangri-la-sydney-2023/
+
+**Good Girls Comedy 2023**
+ https://upnext.com.au/event/good-girls-comedy-2023/
+
+**Guy Sebastian: Double Decade Celebration 2023**
+ https://upnext.com.au/event/guy-sebastian-double-decade-celebration-2023/
+
+**Polskie Koledy - Polish Christmas Carols 2023**
+ https://upnext.com.au/event/polskie-koledy-polish-christmas-carols-2023/
+
+**Mae Ngai - Book Talk 2023**
+ https://upnext.com.au/event/mae-ngai-book-talk-2023/
+
+**Seed Planet Festival 2023**
+ https://upnext.com.au/event/seed-planet-festival-2023/
+
+**Singular Voices: Lloyd Cole 2023**
+ https://upnext.com.au/event/singular-voices-lloyd-cole-2023/
+
+**Bingay Christmas 2023**
+ https://upnext.com.au/event/bingay-christmas-2023/
+
+**Evita Manji at Phoenix Central Park 2023**
+ https://upnext.com.au/event/evita-manji-at-phoenix-central-park-2023/
+
+**Festive Maker and Creator 8-12yrs 2023**
+ https://upnext.com.au/event/festive-maker-and-creator-8-12yrs-2023/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
