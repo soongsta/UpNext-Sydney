@@ -1,0 +1,80 @@
+# New Sydney Events as at 11 Dec 2023
+New Sydney Events as at 11 Dec 2023 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Light Up The Sky With Playstation And Sony Foundation 2023**
+ https://upnext.com.au/event/light-up-the-sky-with-playstation-and-sony-foundation-2023/
+
+**Christmas Celebrations At Sailmaker Restaurant 2023**
+ https://upnext.com.au/event/christmas-celebrations-at-sailmaker-restaurant-2023/
+
+**Barista foundations and job ready workshop 2023**
+ https://upnext.com.au/event/barista-foundations-and-job-ready-workshop-2023/
+
+**Meeting Mozart 2023**
+ https://upnext.com.au/event/meeting-mozart-2023/
+
+**Nathan Dawson Art- Art Exhibition 2023**
+ https://upnext.com.au/event/nathan-dawson-art-art-exhibition-2023/
+
+**Joshua Bonson Solo Exhibition - Ancestors Footsteps 2023**
+ https://upnext.com.au/event/joshua-bonson-solo-exhibition-ancestors-footsteps-2023/
+
+**Jolly Market: Sydney's European-inspired X-Mas Night Market 2023**
+ https://upnext.com.au/event/jolly-market-sydneys-european-inspired-x-mas-night-market-2023/
+
+**Jonathan Jones: untitled (transcriptions of country) 2023**
+ https://upnext.com.au/event/jonathan-jones-untitled-transcriptions-of-country-2023/
+
+**Pixar Putt 2023**
+ https://upnext.com.au/event/pixar-putt-2023/
+
+**'The Nutcracker' Presented by Australian Chamber Orchestra 2023**
+ https://upnext.com.au/event/the-nutcracker-presented-by-australian-chamber-orchestra-2023/
+
+**School Holiday Workshops December 2023**
+ https://upnext.com.au/event/school-holiday-workshops-december-2023/
+
+**WAYS OOSH summer vacation care 2023**
+ https://upnext.com.au/event/ways-oosh-summer-vacation-care-2023/
+
+**Facing Death and Finding Hope 2023**
+ https://upnext.com.au/event/facing-death-and-finding-hope-2023/
+
+**TheatreSports Scared Scriptless 2023**
+ https://upnext.com.au/event/theatresports-scared-scriptless-2023/
+
+**A Blueprint for Ruins 2023**
+ https://upnext.com.au/event/a-blueprint-for-ruins-2023/
+
+**Azerbaijani Cultural Event 2023**
+ https://upnext.com.au/event/azerbaijani-cultural-event-2023/
+
+**Christmas at Sydney Town Hall 2023**
+ https://upnext.com.au/event/christmas-at-sydney-town-hall-2023/
+
+**Gay Men Date Night at Frank Mac's, Ages 29-49 2023**
+ https://upnext.com.au/event/gay-men-date-night-at-frank-macs-ages-29-49-2023/
+
+**January Dance Camp - Surry Hills 2023**
+ https://upnext.com.au/event/january-dance-camp-surry-hills-2023/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
