@@ -1,0 +1,143 @@
+# New Sydney Events as at 24 Jan 2024
+New Sydney Events as at 24 Jan 2024 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Blade Runner Live 2024**
+ https://upnext.com.au/event/blade-runner-live-2024/
+
+**Chatswood Year of the Dragon launch 2024**
+ https://upnext.com.au/event/chatswood-year-of-the-dragon-launch-2024/
+
+**Lantern Moon 2024**
+ https://upnext.com.au/event/lantern-moon-2024/
+
+**In Conversation with Bethenny Frankel 2024**
+ https://upnext.com.au/event/in-conversation-with-bethenny-frankel-2024/
+
+**Hair Festival 2024**
+ https://upnext.com.au/event/hair-festival-2024/
+
+**Illapu – The Sound of Peace & Freedom 2024**
+ https://upnext.com.au/event/illapu-the-sound-of-peace-and-freedom-2024/
+
+**Pilates 2024**
+ https://upnext.com.au/event/pilates-2024/
+
+**Table tennis 2024**
+ https://upnext.com.au/event/table-tennis-2024/
+
+**Table tennis hire 2024**
+ https://upnext.com.au/event/table-tennis-hire-2024/
+
+**Casual basketball 2024**
+ https://upnext.com.au/event/casual-basketball-2024/
+
+**Men's Wednesday lunchtime competition basketball 2024**
+ https://upnext.com.au/event/mens-wednesday-lunchtime-competition-basketball-2024/
+
+**Open Decks | Hosted by LEOW 2024**
+ https://upnext.com.au/event/open-decks-hosted-by-leow-2024/
+
+**BonkerZ Featured Artist Comedy Clubs 2024**
+ https://upnext.com.au/event/bonkerz-featured-artist-comedy-clubs-2024/
+
+**Desert Colours 2024**
+ https://upnext.com.au/event/desert-colours-2024/
+
+**Lunar New Year Food Tastings in Gong Grocer World Square 2024**
+ https://upnext.com.au/event/lunar-new-year-food-tastings-in-gong-grocer-world-square-2024/
+
+**Learn Embroidery for Absolute Beginners 2024**
+ https://upnext.com.au/event/learn-embroidery-for-absolute-beginners-2024/
+
+**Group Spanish classes 2024**
+ https://upnext.com.au/event/group-spanish-classes-2024/
+
+**Zumba Gold 2024**
+ https://upnext.com.au/event/zumba-gold-2024/
+
+**Chair yoga at Ron Williams 2024**
+ https://upnext.com.au/event/chair-yoga-at-ron-williams-2024/
+
+**Learn to play Bridge: Beginners course 2024**
+ https://upnext.com.au/event/learn-to-play-bridge-beginners-course-2024/
+
+**Mixed Monday lunchtime basketball competition 2024**
+ https://upnext.com.au/event/mixed-monday-lunchtime-basketball-competition-2024/
+
+**PIP Talks 2023**
+ https://upnext.com.au/event/pip-talks-2023/
+
+**Seniors' Open Week: Get ready to head back to school in 2024**
+ https://upnext.com.au/event/seniors-open-week-get-ready-to-head-back-to-school-in-2024/
+
+**Summer Professional Intensive 2024**
+ https://upnext.com.au/event/summer-professional-intensive-2024/
+
+**Sydney Co-op Incubator 2024**
+ https://upnext.com.au/event/sydney-co-op-incubator-2024/
+
+**Yoga 2024**
+ https://upnext.com.au/event/yoga-2024/
+
+**Pyrmont Sings! 2024**
+ https://upnext.com.au/event/pyrmont-sings-2024/
+
+**Free bike tune ups: Queen's Square City 2024**
+ https://upnext.com.au/event/free-bike-tune-ups-queens-square-city-2024/
+
+**Yoga class for all ages and experience 2024**
+ https://upnext.com.au/event/yoga-class-for-all-ages-and-experience-2024/
+
+**Ballet class: Dance with Me 1.5 - 3 yrs 2024**
+ https://upnext.com.au/event/ballet-class-dance-with-me-15-3-yrs-2024/
+
+**Ballet class: Little Ballet 3-5 years 2024**
+ https://upnext.com.au/event/ballet-class-little-ballet-3-5-years-2024/
+
+**Ballet classes: Ages 5-7 years (The Rocks) 2024**
+ https://upnext.com.au/event/ballet-classes-ages-5-7-years-the-rocks-2024/
+
+**Ballet/Jazz combo class: 6-9 years (The Rocks) 2024**
+ https://upnext.com.au/event/ballet-jazz-combo-class-6-9-years-the-rocks-2024/
+
+**Blues Point at Thunderbolt Club 2024**
+ https://upnext.com.au/event/blues-point-at-thunderbolt-club-2024/
+
+**Learn to play bridge: Beginners course 2024**
+ https://upnext.com.au/event/learn-to-play-bridge-beginners-course-2024/
+
+**Learn to Play Bridge: Beginners Course 2024**
+ https://upnext.com.au/event/learn-to-play-bridge-beginners-course-2024/
+
+**Mending and Upcycling Clothes for Beginners Course 2024**
+ https://upnext.com.au/event/mending-and-upcycling-clothes-for-beginners-course-2024/
+
+**Ready Steady Cook: Studio audience 2024**
+ https://upnext.com.au/event/ready-steady-cook-studio-audience-2024/
+
+**Social Group for Chinese speaking seniors 2024**
+ https://upnext.com.au/event/social-group-for-chinese-speaking-seniors-2024/
+
+**Speed Dating Sydney | Ages 38-52 2024**
+ https://upnext.com.au/event/speed-dating-sydney-ages-38-52-2024/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
