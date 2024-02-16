@@ -1,0 +1,119 @@
+# New Sydney Events as at 16 Feb 2024
+New Sydney Events as at 16 Feb 2024 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Lunar New Year At Madame Tussauds Sydney 2024**
+ https://upnext.com.au/event/lunar-new-year-at-madame-tussauds-sydney-2024/
+
+**Dr. Andrew Huberman 2024**
+ https://upnext.com.au/event/dr-andrew-huberman-2024/
+
+**Da Zhangwei 2024**
+ https://upnext.com.au/event/da-zhangwei-2024/
+
+**Adam Grant Live 2024**
+ https://upnext.com.au/event/adam-grant-live-2024/
+
+**Lunar New Year Drone Shows 2024**
+ https://upnext.com.au/event/lunar-new-year-drone-shows-2024/
+
+**Lunar New Year Jet Pack Shows 2024**
+ https://upnext.com.au/event/lunar-new-year-jet-pack-shows-2024/
+
+**Year Of The Dragon Private Readings 2024**
+ https://upnext.com.au/event/year-of-the-dragon-private-readings-2024/
+
+**Bedros Keuilian 2024**
+ https://upnext.com.au/event/bedros-keuilian-2024/
+
+**Celebrate Lunar New Year with SBS 2024**
+ https://upnext.com.au/event/celebrate-lunar-new-year-with-sbs-2024/
+
+**Elvis: A Musical Revolution 2024**
+ https://upnext.com.au/event/elvis-a-musical-revolution-2024/
+
+**Kati Watson Last Supper, and Lorna Napanangka Something New 2024**
+ https://upnext.com.au/event/kati-watson-last-supper-and-lorna-napanangka-something-new-2024/
+
+**Lunar New Year at Adria Bar Restaurant 2024**
+ https://upnext.com.au/event/lunar-new-year-at-adria-bar-restaurant-2024/
+
+**Lunar New Year at Lotus Dumpling Bar 2024**
+ https://upnext.com.au/event/lunar-new-year-at-lotus-dumpling-bar-2024/
+
+**Lunar New Year at Nick's Seafood Restaurant 2024**
+ https://upnext.com.au/event/lunar-new-year-at-nicks-seafood-restaurant-2024/
+
+**Lunar New Year at Pearl 2024**
+ https://upnext.com.au/event/lunar-new-year-at-pearl-2024/
+
+**Mardi Gras At The Butler 2024**
+ https://upnext.com.au/event/mardi-gras-at-the-butler-2024/
+
+**Oxford Street Bar Crawl with a Drag Queen 2024**
+ https://upnext.com.au/event/oxford-street-bar-crawl-with-a-drag-queen-2024/
+
+**Pride Pop-Up Store 2024**
+ https://upnext.com.au/event/pride-pop-up-store-2024/
+
+**The Tea Exchange 2024**
+ https://upnext.com.au/event/the-tea-exchange-2024/
+
+**Queer Sydney: bridging past and present 2024**
+ https://upnext.com.au/event/queer-sydney-bridging-past-and-present-2024/
+
+**Monday Night Dating at Keg & Brew, Ages 44-54 2024**
+ https://upnext.com.au/event/monday-night-dating-at-keg-and-brew-ages-44-54-2024/
+
+**Kate Gorman: Moments of Reflection 2024**
+ https://upnext.com.au/event/kate-gorman-moments-of-reflection-2024/
+
+**Ange Lavoipierre and Jane Watt - Two Queers Comedy Festival 2024**
+ https://upnext.com.au/event/ange-lavoipierre-and-jane-watt-two-queers-comedy-festival-2024/
+
+**Briefs - Dirty Laundry 2024**
+ https://upnext.com.au/event/briefs-dirty-laundry-2024/
+
+**Briefs: Dirty Laundry Tumbles into Sydney Spiegeltent 2024**
+ https://upnext.com.au/event/briefs-dirty-laundry-tumbles-into-sydney-spiegeltent-2024/
+
+**Chinese Community Language Tour: Cantonese 2024**
+ https://upnext.com.au/event/chinese-community-language-tour-cantonese-2024/
+
+**CYL Tai chi workshop 2024**
+ https://upnext.com.au/event/cyl-tai-chi-workshop-2024/
+
+**English conversation and writing skills classes 2024**
+ https://upnext.com.au/event/english-conversation-and-writing-skills-classes-2024/
+
+**Idomeneo 2024**
+ https://upnext.com.au/event/idomeneo-2024/
+
+**Music from Queer Film: Performed by the Sydney Cello Quartet 2024**
+ https://upnext.com.au/event/music-from-queer-film-performed-by-the-sydney-cello-quartet-2024/
+
+**Preparing Your Business For 2024 Legal & Financial Success**
+ https://upnext.com.au/event/preparing-your-business-for-2024-legal-and-financial-success/
+
+**Quantum Australia conference and careers fair 2024**
+ https://upnext.com.au/event/quantum-australia-conference-and-careers-fair-2024/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
