@@ -1,0 +1,71 @@
+# New Sydney Events as at 19 Feb 2024
+New Sydney Events as at 19 Feb 2024 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Beth Hart 2024**
+ https://upnext.com.au/event/beth-hart-2024/
+
+**Lantern Decorating Workshop 2024**
+ https://upnext.com.au/event/lantern-decorating-workshop-2024/
+
+**Dragon Puppet Making Workshop 2024**
+ https://upnext.com.au/event/dragon-puppet-making-workshop-2024/
+
+**Portable Paradises 2024**
+ https://upnext.com.au/event/portable-paradises-2024/
+
+**Cantonese language tour of Passage of Night; Luminary Rising 2024**
+ https://upnext.com.au/event/cantonese-language-tour-of-passage-of-night-luminary-rising-2024/
+
+**Ecology of Identity 2024**
+ https://upnext.com.au/event/ecology-of-identity-2024/
+
+**Smart Expressions 2024**
+ https://upnext.com.au/event/smart-expressions-2024/
+
+**Tacita Dean, Sydney International Art Series 2023/2024**
+ https://upnext.com.au/event/tacita-dean-sydney-international-art-series-2023-2024/
+
+**Queer Cartooning Workshop 2024**
+ https://upnext.com.au/event/queer-cartooning-workshop-2024/
+
+**The Australian Ballet: Alice's Adventures in Wonderland© 2024**
+ https://upnext.com.au/event/the-australian-ballet-alices-adventures-in-wonderland-2024/
+
+**Daniel Mudie Cunningham: Proud Mary 2024**
+ https://upnext.com.au/event/daniel-mudie-cunningham-proud-mary-2024/
+
+**Research for Writers with Eliza Henry-Jones 2024**
+ https://upnext.com.au/event/research-for-writers-with-eliza-henry-jones-2024/
+
+**ADC Exhibition Tours - IATB 2023, TILED and رُفات قِدّيسٍ 2024**
+ https://upnext.com.au/event/adc-exhibition-tours-iatb-2023-tiled-and-2024/
+
+**Iris Toren - Meditations 2024**
+ https://upnext.com.au/event/iris-toren-meditations-2024/
+
+**Grain in the Blood by Rob Drummond 2024**
+ https://upnext.com.au/event/grain-in-the-blood-by-rob-drummond-2024/
+
+**Archie Rose Gin & Tour 2024**
+ https://upnext.com.au/event/archie-rose-gin-and-tour-2024/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
