@@ -1,0 +1,128 @@
+# New Sydney Events as at 13 Mar 2024
+New Sydney Events as at 13 Mar 2024 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Itzy 2nd World Tour Born To Be 2024**
+ https://upnext.com.au/event/itzy-2nd-world-tour-born-to-be-2024/
+
+**Good Friday Seafood Dinner At Sailmaker 2024**
+ https://upnext.com.au/event/good-friday-seafood-dinner-at-sailmaker-2024/
+
+**Tall Ships & Small Ships 2024**
+ https://upnext.com.au/event/tall-ships-and-small-ships-2024/
+
+**Easter Saturday Seafood Dinner At Sailmaker 2024**
+ https://upnext.com.au/event/easter-saturday-seafood-dinner-at-sailmaker-2024/
+
+**Easter Brunch Buffet At Sailmaker 2024**
+ https://upnext.com.au/event/easter-brunch-buffet-at-sailmaker-2024/
+
+**Easter Long Weekend At Nick's Seafood Restaurant 2024**
+ https://upnext.com.au/event/easter-long-weekend-at-nicks-seafood-restaurant-2024/
+
+**Learn how to become a "local field naturalist" / Convergences workshop 2024**
+ https://upnext.com.au/event/learn-how-to-become-a-local-field-naturalist-convergences-workshop-2024/
+
+**PAW Patrol Live! “Race to the Rescue” | ICC Sydney Theatre 2024**
+ https://upnext.com.au/event/paw-patrol-live-race-to-the-rescue-icc-sydney-theatre-2024/
+
+**SIDCON & ADX Sydney 2024**
+ https://upnext.com.au/event/sidcon-and-adx-sydney-2024/
+
+**GPCE Sydney 2024**
+ https://upnext.com.au/event/gpce-sydney-2024/
+
+**Online Retailer 2024**
+ https://upnext.com.au/event/online-retailer-2024/
+
+**Australia Post Online Retail Industry Awards (ORIAS) 2024**
+ https://upnext.com.au/event/australia-post-online-retail-industry-awards-orias-2024/
+
+**Magic Mic comedy night 2024**
+ https://upnext.com.au/event/magic-mic-comedy-night-2024/
+
+**Gongbath - Sound Healing 2024**
+ https://upnext.com.au/event/gongbath-sound-healing-2024/
+
+**Group Art Shows Sydney presents COLOUR BURN 2024**
+ https://upnext.com.au/event/group-art-shows-sydney-presents-colour-burn-2024/
+
+**Inspire & Evolve Art Exhibition 2024**
+ https://upnext.com.au/event/inspire-and-evolve-art-exhibition-2024/
+
+**Jag The Joker 2024**
+ https://upnext.com.au/event/jag-the-joker-2024/
+
+**Writing for the Education Market with Louise Park 2024**
+ https://upnext.com.au/event/writing-for-the-education-market-with-louise-park-2024/
+
+**ArtsLab: Collide 2024**
+ https://upnext.com.au/event/artslab-collide-2024/
+
+**Bingo Babes! 2024**
+ https://upnext.com.au/event/bingo-babes-2024/
+
+**Effie Milos - Odyssey 2024**
+ https://upnext.com.au/event/effie-milos-odyssey-2024/
+
+**Manga after school class 2024**
+ https://upnext.com.au/event/manga-after-school-class-2024/
+
+**Michelle Connolly 'Taking a Line for a Walk' 2024**
+ https://upnext.com.au/event/michelle-connolly-taking-a-line-for-a-walk-2024/
+
+**Richard III 2024**
+ https://upnext.com.au/event/richard-iii-2024/
+
+**Seniors board games afternoon 2024**
+ https://upnext.com.au/event/seniors-board-games-afternoon-2024/
+
+**Friday night jams moonlight serenades and conga lines 2024**
+ https://upnext.com.au/event/friday-night-jams-moonlight-serenades-and-conga-lines-2024/
+
+**Cast in cast out 2024**
+ https://upnext.com.au/event/cast-in-cast-out-2024/
+
+**Ghostbusters: Frozen Empire Cocktails 2024**
+ https://upnext.com.au/event/ghostbusters-frozen-empire-cocktails-2024/
+
+**Ghostbusters: Frozen Empire high tea 2024**
+ https://upnext.com.au/event/ghostbusters-frozen-empire-high-tea-2024/
+
+**Ngaya (I am) 2024**
+ https://upnext.com.au/event/ngaya-i-am-2024/
+
+**Norah: Double feature comedy show 2024**
+ https://upnext.com.au/event/norah-double-feature-comedy-show-2024/
+
+**Strangers on a Train 2024**
+ https://upnext.com.au/event/strangers-on-a-train-2024/
+
+**Journaling for wellbeing - Redfern 2024**
+ https://upnext.com.au/event/journaling-for-wellbeing-redfern-2024/
+
+**""David Hobson In Concert!" - The Good Old Days Concerts 2024"**
+ https://upnext.com.au/event/david-hobson-in-concert-the-good-old-days-concerts-2024/
+
+**A Taste of Harmony 2024**
+ https://upnext.com.au/event/a-taste-of-harmony-2024/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
