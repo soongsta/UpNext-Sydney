@@ -1,0 +1,92 @@
+# New Sydney Events as at 18 Mar 2024
+New Sydney Events as at 18 Mar 2024 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Chocolate Indulgence At 15cenchi 2024**
+ https://upnext.com.au/event/chocolate-indulgence-at-15cenchi-2024/
+
+**Easter Long Weekend At Adria Bar Restaurant 2024**
+ https://upnext.com.au/event/easter-long-weekend-at-adria-bar-restaurant-2024/
+
+**Easter Long Weekend At I'm Angus Steakhouse 2024**
+ https://upnext.com.au/event/easter-long-weekend-at-im-angus-steakhouse-2024/
+
+**The Wiggles - Wiggle Groove! 2024**
+ https://upnext.com.au/event/the-wiggles-wiggle-groove-2024/
+
+**Swan Lake - Victorian State Ballet 2024**
+ https://upnext.com.au/event/swan-lake-victorian-state-ballet-2024/
+
+**Mamamia Out Loud 2024**
+ https://upnext.com.au/event/mamamia-out-loud-2024/
+
+**Max Amini 2024**
+ https://upnext.com.au/event/max-amini-2024/
+
+**ISSA Cleaning and Hygiene Expo 2024**
+ https://upnext.com.au/event/issa-cleaning-and-hygiene-expo-2024/
+
+**'Chase' Zhang Zhe Han 2024**
+ https://upnext.com.au/event/chase-zhang-zhe-han-2024/
+
+**Flow: A Dialogue Between Chinese & Australian Women Artists 2024**
+ https://upnext.com.au/event/flow-a-dialogue-between-chinese-and-australian-women-artists-2024/
+
+**Hatha yoga lunchtime class 2024**
+ https://upnext.com.au/event/hatha-yoga-lunchtime-class-2024/
+
+**Morning tai chi class 2024**
+ https://upnext.com.au/event/morning-tai-chi-class-2024/
+
+**Atlantis by Lally Katz 2024**
+ https://upnext.com.au/event/atlantis-by-lally-katz-2024/
+
+**Christine Webb: The Curated Interior 2024**
+ https://upnext.com.au/event/christine-webb-the-curated-interior-2024/
+
+**Mindfulness Training: The Art of Being Present 2024**
+ https://upnext.com.au/event/mindfulness-training-the-art-of-being-present-2024/
+
+**Anything Goes art exhibition 2024**
+ https://upnext.com.au/event/anything-goes-art-exhibition-2024/
+
+**Preparing for Publication with Tiffany Tsao 2024**
+ https://upnext.com.au/event/preparing-for-publication-with-tiffany-tsao-2024/
+
+**Reflections of the Mind & Eye 2024**
+ https://upnext.com.au/event/reflections-of-the-mind-and-eye-2024/
+
+**Sam Shepard and Patti Smith's, Cowboy Mouth & Music Festival 2024**
+ https://upnext.com.au/event/sam-shepard-and-patti-smiths-cowboy-mouth-and-music-festival-2024/
+
+**The Art of Making 2024**
+ https://upnext.com.au/event/the-art-of-making-2024/
+
+**Tony Edwards 2024**
+ https://upnext.com.au/event/tony-edwards-2024/
+
+**Kettles 2024**
+ https://upnext.com.au/event/kettles-2024/
+
+**Light from Nature 자연의 빛 2024**
+ https://upnext.com.au/event/light-from-nature-2024/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
