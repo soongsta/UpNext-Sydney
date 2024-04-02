@@ -1,0 +1,92 @@
+# New Sydney Events as at 02 Apr 2024
+New Sydney Events as at 02 Apr 2024 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Steven Bartlett Presents: The Business & Life Speaking Tour 2024**
+ https://upnext.com.au/event/steven-bartlett-presents-the-business-and-life-speaking-tour-2024/
+
+**Aqua Rugby 2024**
+ https://upnext.com.au/event/aqua-rugby-2024/
+
+**Synergy Workshop 2024**
+ https://upnext.com.au/event/synergy-workshop-2024/
+
+**School (Holiday) Disco 2024**
+ https://upnext.com.au/event/school-holiday-disco-2024/
+
+**Everybody Can Dance 2024**
+ https://upnext.com.au/event/everybody-can-dance-2024/
+
+**Riverdance 2024**
+ https://upnext.com.au/event/riverdance-2024/
+
+**Beats & Body Percussion 2024**
+ https://upnext.com.au/event/beats-and-body-percussion-2024/
+
+**Looped De Loop 2024**
+ https://upnext.com.au/event/looped-de-loop-2024/
+
+**Learn To K-pop 2024**
+ https://upnext.com.au/event/learn-to-k-pop-2024/
+
+**1974 AD | ICC Sydney Theatre NaN**
+ https://upnext.com.au/event/1974-ad-icc-sydney-theatre-nan/
+
+**Ottchil: Light from Nature 2024**
+ https://upnext.com.au/event/ottchil-light-from-nature-2024/
+
+**Future Ready - For Life After Work 2024**
+ https://upnext.com.au/event/future-ready-for-life-after-work-2024/
+
+**'What Goes Around' 2024**
+ https://upnext.com.au/event/what-goes-around-2024/
+
+**ADC Exhibition Tours 2024**
+ https://upnext.com.au/event/adc-exhibition-tours-2024/
+
+**Easter Themed High Tea at Parliament House, Sydney 2024**
+ https://upnext.com.au/event/easter-themed-high-tea-at-parliament-house-sydney-2024/
+
+**Everywhere I Look I See Magic 2024**
+ https://upnext.com.au/event/everywhere-i-look-i-see-magic-2024/
+
+**Yin yoga lunchtime class 2024**
+ https://upnext.com.au/event/yin-yoga-lunchtime-class-2024/
+
+**For the Love of Paper 2024**
+ https://upnext.com.au/event/for-the-love-of-paper-2024/
+
+**Tailored With Love: Children's Kimono Throughout Generations 2024**
+ https://upnext.com.au/event/tailored-with-love-childrens-kimono-throughout-generations-2024/
+
+**Wonder 2024**
+ https://upnext.com.au/event/wonder-2024/
+
+**No Pay? No Way! 2024**
+ https://upnext.com.au/event/no-pay-no-way-2024/
+
+**Experience the good life with meditation - beginner class 2024**
+ https://upnext.com.au/event/experience-the-good-life-with-meditation-beginner-class-2024/
+
+**The Art of Sydney 2024**
+ https://upnext.com.au/event/the-art-of-sydney-2024/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
