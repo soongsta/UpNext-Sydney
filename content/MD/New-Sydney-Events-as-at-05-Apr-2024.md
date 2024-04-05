@@ -1,0 +1,143 @@
+# New Sydney Events as at 05 Apr 2024
+New Sydney Events as at 05 Apr 2024 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Steven Bartlett Presents: The Business & Life Speaking Tour 2024**
+ https://upnext.com.au/event/steven-bartlett-presents-the-business-and-life-speaking-tour-2024/
+
+**Aqua Rugby 2024**
+ https://upnext.com.au/event/aqua-rugby-2024/
+
+**Synergy Workshop 2024**
+ https://upnext.com.au/event/synergy-workshop-2024/
+
+**School (Holiday) Disco 2024**
+ https://upnext.com.au/event/school-holiday-disco-2024/
+
+**Everybody Can Dance 2024**
+ https://upnext.com.au/event/everybody-can-dance-2024/
+
+**Riverdance 2024**
+ https://upnext.com.au/event/riverdance-2024/
+
+**Beats & Body Percussion 2024**
+ https://upnext.com.au/event/beats-and-body-percussion-2024/
+
+**Looped De Loop 2024**
+ https://upnext.com.au/event/looped-de-loop-2024/
+
+**Learn To K-pop 2024**
+ https://upnext.com.au/event/learn-to-k-pop-2024/
+
+**Awesome Aerobics 2024**
+ https://upnext.com.au/event/awesome-aerobics-2024/
+
+**Sydney Comedy Festival 2024**
+ https://upnext.com.au/event/sydney-comedy-festival-2024/
+
+**Lauren Daigle | ICC Sydney Theatre NaN**
+ https://upnext.com.au/event/lauren-daigle-icc-sydney-theatre-nan/
+
+**Tsai Chin 2024**
+ https://upnext.com.au/event/tsai-chin-2024/
+
+**OUR MOB 2024**
+ https://upnext.com.au/event/our-mob-2024/
+
+**Haunted Habitats 2024**
+ https://upnext.com.au/event/haunted-habitats-2024/
+
+**Haunted Habitats 2024**
+ https://upnext.com.au/event/haunted-habitats-2024/
+
+**OPEN NOW // A Marvellous Party at The Emerald Room 2024**
+ https://upnext.com.au/event/open-now-a-marvellous-party-at-the-emerald-room-2024/
+
+**Peter Maloney: Sea World Siren Song 2024**
+ https://upnext.com.au/event/peter-maloney-sea-world-siren-song-2024/
+
+**Saturday All You Can Eat Southern American BBQ Lunch - $60pp 2024**
+ https://upnext.com.au/event/saturday-all-you-can-eat-southern-american-bbq-lunch-60pp-2024/
+
+**Monday Night Speed Dating in Surry Hills, Ages 29-39 2024**
+ https://upnext.com.au/event/monday-night-speed-dating-in-surry-hills-ages-29-39-2024/
+
+**Oceanic narratives: Interweaving past, present and future 2024**
+ https://upnext.com.au/event/oceanic-narratives-interweaving-past-present-and-future-2024/
+
+**Free bike tune up: Chippendale 2024**
+ https://upnext.com.au/event/free-bike-tune-up-chippendale-2024/
+
+**10,000 flavours: the vape marketing trap 2024**
+ https://upnext.com.au/event/10-000-flavours-the-vape-marketing-trap-2024/
+
+**Active Kids School Holiday Program 2024**
+ https://upnext.com.au/event/active-kids-school-holiday-program-2024/
+
+**Biology and engineering meet to build a sustainable world 2024**
+ https://upnext.com.au/event/biology-and-engineering-meet-to-build-a-sustainable-world-2024/
+
+**Can your health be programmed like an app? 2024**
+ https://upnext.com.au/event/can-your-health-be-programmed-like-an-app-2024/
+
+**Carbon footprint 101: become a climate champion at work 2024**
+ https://upnext.com.au/event/carbon-footprint-101-become-a-climate-champion-at-work-2024/
+
+**Cars, canines & cities: your commute can be better 2024**
+ https://upnext.com.au/event/cars-canines-and-cities-your-commute-can-be-better-2024/
+
+**Changing reality with stories 2024**
+ https://upnext.com.au/event/changing-reality-with-stories-2024/
+
+**Corridor cultures: Gender and sexuality at school 2024**
+ https://upnext.com.au/event/corridor-cultures-gender-and-sexuality-at-school-2024/
+
+**Could understanding dark matter save the world? 2024**
+ https://upnext.com.au/event/could-understanding-dark-matter-save-the-world-2024/
+
+**Flight Path 24 2024**
+ https://upnext.com.au/event/flight-path-24-2024/
+
+**Harnessing brain waves to improve mental health 2024**
+ https://upnext.com.au/event/harnessing-brain-waves-to-improve-mental-health-2024/
+
+**How tickets for good is evolving capitalism 2024**
+ https://upnext.com.au/event/how-tickets-for-good-is-evolving-capitalism-2024/
+
+**Is depression a form of jetlag? 2024**
+ https://upnext.com.au/event/is-depression-a-form-of-jetlag-2024/
+
+**Living with limited internet: how tiny tech is saving lives 2024**
+ https://upnext.com.au/event/living-with-limited-internet-how-tiny-tech-is-saving-lives-2024/
+
+**Migrapreneurs can unlock a better future for all 2024**
+ https://upnext.com.au/event/migrapreneurs-can-unlock-a-better-future-for-all-2024/
+
+**New neurological disease treatments (and a wobbly cat) 2024**
+ https://upnext.com.au/event/new-neurological-disease-treatments-and-a-wobbly-cat-2024/
+
+**Now & Then X Grey Goose 80's Nights 2024**
+ https://upnext.com.au/event/now-and-then-x-grey-goose-80s-nights-2024/
+
+**Potted Potter: All Seven Harry Potter Books in 70 Minutes 2024**
+ https://upnext.com.au/event/potted-potter-all-seven-harry-potter-books-in-70-minutes-2024/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
