@@ -1,0 +1,128 @@
+# New Sydney Events as at 17 Jul 2024
+New Sydney Events as at 17 Jul 2024 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Winter Face Painting 2024**
+ https://upnext.com.au/event/winter-face-painting-2024/
+
+**Winter Glitter Tattoos 2024**
+ https://upnext.com.au/event/winter-glitter-tattoos-2024/
+
+**Build A Snowman Workshop 2024**
+ https://upnext.com.au/event/build-a-snowman-workshop-2024/
+
+**Rooted in Nature 2024**
+ https://upnext.com.au/event/rooted-in-nature-2024/
+
+**'Tree's Texture' workshop 2024**
+ https://upnext.com.au/event/trees-texture-workshop-2024/
+
+**'Nature Wonders' painting workshop 2024**
+ https://upnext.com.au/event/nature-wonders-painting-workshop-2024/
+
+**Australasian Waste and Recycling Expo 2024**
+ https://upnext.com.au/event/australasian-waste-and-recycling-expo-2024/
+
+**""Blood Wedding" at Flight Path Theatre 2024"**
+ https://upnext.com.au/event/blood-wedding-at-flight-path-theatre-2024/
+
+**Children's Books Writing Course with Belinda Murrell 2024**
+ https://upnext.com.au/event/childrens-books-writing-course-with-belinda-murrell-2024/
+
+**Creative Non-Fiction Course with Zoya Patel 2024**
+ https://upnext.com.au/event/creative-non-fiction-course-with-zoya-patel-2024/
+
+**Game On this July at BridgeClimb 2024**
+ https://upnext.com.au/event/game-on-this-july-at-bridgeclimb-2024/
+
+**Inaugural Kelp Forest Photo Awards 2024**
+ https://upnext.com.au/event/inaugural-kelp-forest-photo-awards-2024/
+
+**Julie Rrap: Past Continuous 2024**
+ https://upnext.com.au/event/julie-rrap-past-continuous-2024/
+
+**Little Women 2024**
+ https://upnext.com.au/event/little-women-2024/
+
+**MCA Collection: Jonathan Jones, naa (to see or look) 2024**
+ https://upnext.com.au/event/mca-collection-jonathan-jones-naa-to-see-or-look-2024/
+
+**Moore Park mixed AFL Nines 2024**
+ https://upnext.com.au/event/moore-park-mixed-afl-nines-2024/
+
+**National Awards Exhibition 2024 - Miniature Art**
+ https://upnext.com.au/event/national-awards-exhibition-2024-miniature-art/
+
+**Poetry Feedback Course with Ivy Ireland 2024**
+ https://upnext.com.au/event/poetry-feedback-course-with-ivy-ireland-2024/
+
+**Thin Ice VR at the Australian Museum 2024**
+ https://upnext.com.au/event/thin-ice-vr-at-the-australian-museum-2024/
+
+**Truffle Month 2024**
+ https://upnext.com.au/event/truffle-month-2024/
+
+**Cost of Living 2024**
+ https://upnext.com.au/event/cost-of-living-2024/
+
+**Earth Poetry - group show 2024**
+ https://upnext.com.au/event/earth-poetry-group-show-2024/
+
+**Let's Get Quizzical: Trivia Night 2024**
+ https://upnext.com.au/event/lets-get-quizzical-trivia-night-2024/
+
+**Paul Battams: Bush. Water. Fire. Rock. 2024**
+ https://upnext.com.au/event/paul-battams-bush-water-fire-rock-2024/
+
+**RISE 4: Women and Water in the Djelk Region 2024**
+ https://upnext.com.au/event/rise-4-women-and-water-in-the-djelk-region-2024/
+
+**Live jazz nights 2024**
+ https://upnext.com.au/event/live-jazz-nights-2024/
+
+**Christmas in July at The Sanderson 2024**
+ https://upnext.com.au/event/christmas-in-july-at-the-sanderson-2024/
+
+**Hamlet 2024**
+ https://upnext.com.au/event/hamlet-2024/
+
+**Hamlet at Sydney Opera House 2024**
+ https://upnext.com.au/event/hamlet-at-sydney-opera-house-2024/
+
+**Le Aerial at Sydney Opera House 2024**
+ https://upnext.com.au/event/le-aerial-at-sydney-opera-house-2024/
+
+**Pop-up reused clothes shop, everything under $20! 2024**
+ https://upnext.com.au/event/pop-up-reused-clothes-shop-everything-under-20-2024/
+
+**Travel talks: Art and culture across the globe 2024**
+ https://upnext.com.au/event/travel-talks-art-and-culture-across-the-globe-2024/
+
+**Burlyflexx Neo-Burlesque Course@ One Playground Marrickville 2024**
+ https://upnext.com.au/event/burlyflexx-neo-burlesque-course-one-playground-marrickville-2024/
+
+**A-MUSE Project: Sydney Sesh Idol Live 2024**
+ https://upnext.com.au/event/a-muse-project-sydney-sesh-idol-live-2024/
+
+**Bendik Giske at Phoenix Central Park 2024**
+ https://upnext.com.au/event/bendik-giske-at-phoenix-central-park-2024/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
