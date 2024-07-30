@@ -1,0 +1,140 @@
+# New Sydney Events as at 30 Jul 2024
+New Sydney Events as at 30 Jul 2024 | UpNext Sydney | Sydney Events, Activities &amp; Things To Do
+
+Youtube Channel: https://www.youtube.com/@upnextsydney/videos 
+Website: https://upnext.com.au/sydney/
+
+
+**Sydney International Boat Show At Adria 2024**
+ https://upnext.com.au/event/sydney-international-boat-show-at-adria-2024/
+
+**#Haveago 2024**
+ https://upnext.com.au/event/haveago-2024/
+
+**Unbroken Gestures 2024**
+ https://upnext.com.au/event/unbroken-gestures-2024/
+
+**Guards at the Taj 2024**
+ https://upnext.com.au/event/guards-at-the-taj-2024/
+
+**Hatsune Miku | ICC Sydney Theatre 2024**
+ https://upnext.com.au/event/hatsune-miku-icc-sydney-theatre-2024/
+
+**The VET Expo 2024**
+ https://upnext.com.au/event/the-vet-expo-2024/
+
+**Home Cooking Show 2024**
+ https://upnext.com.au/event/home-cooking-show-2024/
+
+**Cake Bake & Sweets Show 2024**
+ https://upnext.com.au/event/cake-bake-and-sweets-show-2024/
+
+**Nikita Tszyu v Koen Mazoudier | ICC Sydney Theatre 2024**
+ https://upnext.com.au/event/nikita-tszyu-v-koen-mazoudier-icc-sydney-theatre-2024/
+
+**Book Exchange 2024**
+ https://upnext.com.au/event/book-exchange-2024/
+
+**Creative women of OWN virtual gallery 2024**
+ https://upnext.com.au/event/creative-women-of-own-virtual-gallery-2024/
+
+**Current: Gail Mabo, Lisa Waup, Dominic White 2024**
+ https://upnext.com.au/event/current-gail-mabo-lisa-waup-dominic-white-2024/
+
+**Introduction to Classical Latin 2024**
+ https://upnext.com.au/event/introduction-to-classical-latin-2024/
+
+**Jewellery Making Class: Make a Silver Ring 2024**
+ https://upnext.com.au/event/jewellery-making-class-make-a-silver-ring-2024/
+
+**Olympics and Paralympics live site 2024**
+ https://upnext.com.au/event/olympics-and-paralympics-live-site-2024/
+
+**Resin Art Class: Cheeseboards 2024**
+ https://upnext.com.au/event/resin-art-class-cheeseboards-2024/
+
+**Tio's Darts Night 2024**
+ https://upnext.com.au/event/tios-darts-night-2024/
+
+**Tufting Class for Beginners: Make a Tufted Rug 2024**
+ https://upnext.com.au/event/tufting-class-for-beginners-make-a-tufted-rug-2024/
+
+**Art Sur Papier 2024**
+ https://upnext.com.au/event/art-sur-papier-2024/
+
+**Baho: Stories of resilience and determination 2024**
+ https://upnext.com.au/event/baho-stories-of-resilience-and-determination-2024/
+
+**Enhance your gut, Enhance your life! 2024**
+ https://upnext.com.au/event/enhance-your-gut-enhance-your-life-2024/
+
+**Radisson themed high tea 2024**
+ https://upnext.com.au/event/radisson-themed-high-tea-2024/
+
+**Chefs of the House 2024**
+ https://upnext.com.au/event/chefs-of-the-house-2024/
+
+**Community Garden Art Project 2024**
+ https://upnext.com.au/event/community-garden-art-project-2024/
+
+**Cosi Fan Tutte 2024**
+ https://upnext.com.au/event/cosi-fan-tutte-2024/
+
+**Cowgirls & Aliens Art Exhibition at Wedge Gallery Kinokuniya 2024**
+ https://upnext.com.au/event/cowgirls-and-aliens-art-exhibition-at-wedge-gallery-kinokuniya-2024/
+
+**Interrogate the Truffle at The Sanderson 2024**
+ https://upnext.com.au/event/interrogate-the-truffle-at-the-sanderson-2024/
+
+**St Andrew's Cathedral School - IBDP Visual Arts Exhibition 2024**
+ https://upnext.com.au/event/st-andrews-cathedral-school-ibdp-visual-arts-exhibition-2024/
+
+**The Rocks easy eats and happy hours 2024**
+ https://upnext.com.au/event/the-rocks-easy-eats-and-happy-hours-2024/
+
+**Australian Life Exhibition 2024**
+ https://upnext.com.au/event/australian-life-exhibition-2024/
+
+**Finding Light in Shadows: Irises Reimagined 2024**
+ https://upnext.com.au/event/finding-light-in-shadows-irises-reimagined-2024/
+
+**Walking soccer 2024**
+ https://upnext.com.au/event/walking-soccer-2024/
+
+**Arlington 2024**
+ https://upnext.com.au/event/arlington-2024/
+
+**Gnocchi and ricotta making with bottomless wine 2024**
+ https://upnext.com.au/event/gnocchi-and-ricotta-making-with-bottomless-wine-2024/
+
+**Johanna Hildebrandt: Naturalis 2024**
+ https://upnext.com.au/event/johanna-hildebrandt-naturalis-2024/
+
+**Neon Paint and Sip Workshop 2024**
+ https://upnext.com.au/event/neon-paint-and-sip-workshop-2024/
+
+**Patchwork & Quilting course: Make a double Irish chain quilt 2024**
+ https://upnext.com.au/event/patchwork-and-quilting-course-make-a-double-irish-chain-quilt-2024/
+
+**Small Pleasures 2024**
+ https://upnext.com.au/event/small-pleasures-2024/
+
+**Suzie Rix & Judy Denby - Exhibition 2024**
+ https://upnext.com.au/event/suzie-rix-and-judy-denby-exhibition-2024/
+
+
+
+See more events at https://upnext.com.au/sydney/
+
+
+Also check out:
+
+* UpNext Melbourne, https://upnext.com.au/melbourne/, where you will find Melbourne Events, Activities & Things To Do
+
+* UpNext Brisbane, https://upnext.com.au/brisbane/, where you will find Brisbane Events, Activities & Things To Do
+
+* UpNext Adelaide, https://upnext.com.au/adelaide/, where you will find Adelaide Events, Activities & Things To Do
+
+* UpNext Perth, https://upnext.com.au/perth/, where you will find Perth Events, Activities & Things To Do
+
+* UpNext Canberra, https://upnext.com.au/canberra/, where you will find Melbourne Events, Activities & Things To Do
